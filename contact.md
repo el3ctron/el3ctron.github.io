@@ -13,5 +13,8 @@ Como me gusta compartir cosas soy una persona bastante *social* así que pueden 
 
 Si alguien quiere ponerse en contacto directo conmigo puede enviar un correo a [el3ctron@googlegroups.com](//groups.google.com/forum/#!forum/el3ctron)
 
+Dirección de bitcoin: 12waxduDrp86V7wGTLRggy9LsjnH4BJqqL
+Dirección de litecoin: LUwxEuJHxJHnr3kHDYsMYkFTx6dXwLcFDq
+
 Happy hacking!
 
