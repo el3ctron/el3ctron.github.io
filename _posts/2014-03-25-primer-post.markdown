@@ -26,3 +26,5 @@ Nunca más dependiente de ninguna plataforma.
 ## ॐ @el3ctron
 
 Latinoamericano, cardionauta, ingeniero de sistemas, amante del arte, el hacking y las cosas hechas con cariño e inteligencia.
+
+<object data=http://el3ctron.tumblr.com/ width="800" height="400"> <embed src=http://el3ctron.tumblr.com/ width="800" height="400"> </embed> Error: Embedded data could not be displayed. </object>
