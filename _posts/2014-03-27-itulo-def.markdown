@@ -1,0 +1,19 @@
+---
+author: el3ctron
+comments: true
+date: 2014-03-27 00:45
+layout: post
+slug: primer-post
+title: itulo def
+description: resumen título def
+categories: el3ctron
+- Miscellaneous
+---
+
+resumen título def
+
+![WordPress to Jekyll](/opt/mis_scripts/)
+
+<!-- more -->
+
+Latinoamericano, cardionauta, ingeniero de sistemas, amante del arte, el hacking y las cosas hechas con cariño e inteligencia. 
