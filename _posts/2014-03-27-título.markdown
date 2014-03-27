@@ -1,0 +1,19 @@
+---
+author: el3ctron
+comments: true
+date: 2014-03-27 00:40
+layout: post
+slug: primer-post
+title: título
+description: resumen artícul
+categories: el3ctron
+- Miscellaneous
+---
+
+resumen artículo
+
+![WordPress to Jekyll](/opt/mis_scripts/)
+
+<!-- more -->
+
+contenido Latinoamericano, cardionauta, ingeniero de sistemas, amante del arte, el hacking y las cosas hechas con cariño e inteligencia. 
