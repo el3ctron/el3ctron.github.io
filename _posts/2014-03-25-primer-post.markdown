@@ -12,7 +12,7 @@ categories:
 
 Esta es una iniciativa para...
 
-![WordPress to Jekyll](/wp-content/uploads/2014/03/wordpress-to-jekyll.png)
+[![WordPress to Jekyll](/wp-content/uploads/2014/03/wordpress-to-jekyll.png)](//primer-post)
 
 <!-- more -->
 
