@@ -1,16 +1,15 @@
 ---
 layout: default
 title: Contacto
-description: Ponte en contacto conmigo si tiene alguna duda o simplemente quieres decir hola.
+description: Ponte en contacto conmigo si tienes alguna duda o simplemente quieres decir hola.
 permalink: /contacto/
 ---
 
-Me gusta compartir cosas, soy una persona bastante *social*, así que puedo ser contactado fácilmente:
+Me gusta compartir cosas, soy una persona bastante *social*, así que dispuse algunos recursos para ser contactado fácilmente..
 
-- En mi cuenta de [twitter](//twitter.com/el3ctron) tengo centrada toda mi actividad pública, ahí suelo referenciar enlaces relevantes y comento.
-- Monté una página en facebook [facebook](//facebook.com/el3ctr0n) en la que escencialmente publico lo mismo que en twitter; la dispuse ya que algunas personas usan mas un servicio que el otro, pero sobre todo por que los mensajes que escriben por ese medio me llegan de forma inmediata y en tanto puedo los respondo :)
-- Tengo una cuenta en [GitHub](//github.com/el3ctron) en donde espero compartir algunos de los proyectos que vengo desarrollando en código libre.
-- Y finalmente si alguien quiere ponerse en contacto directo vía mail puede enviar un correo a [el3ctron@googlegroups.com](//groups.google.com/forum/#!forum/el3ctron), en general, tengo cuenta en casi todas las redes sociales bajo este nickname de el3ctron, seguramente una busqueda simple los traerá hasta esta costa.
+- En mi cuenta de [twitter](//twitter.com/el3ctron) tengo centrada toda mi actividad pública, ahí suelo referenciar enlaces relevantes y comentarios.
+- En [facebook](//facebook.com/el3ctr0n) hay una página en la que escencialmente publico lo mismo que en twitter; ¿para que coño? bueno, algunas personas usan mas un servicio que el otro, pero sobre todo por que los mensajes que escriben por ese medio me llegan de forma inmediata y en tanto puedo los respondo :)
+- Y finalmente si alguien quiere ponerse en contacto directo vía mail puede enviar un correo a [el3ctron@googlegroups.com](//groups.google.com/forum/#!forum/el3ctron), en general, en casi todas las redes sociales hay una cuenta bajo el nickname de [el3ctron](//encrypted.google.com/search?hl=es-419&source=hp&q=el3ctron&gbv=2&oq=el3ctron&gs_l=heirloom-hp.3..0i19l3j0i30i19l7.2326.2424.0.3874.11.2.0.0.0.0.177.246.1j1.2.0....0...1ac.1.34.heirloom-hp..10.1.69.NwjbTsefjQo), seguramente una [busqueda simple](//duckduckgo.com/?q=el3ctron) los traiga hasta esta costa.
 
 ##Direcciones de criptomonedas
 
