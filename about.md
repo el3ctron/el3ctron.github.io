@@ -1,13 +1,15 @@
 ---
 layout: default
-title: Acerca de mi
-description: Descubre un poco más acerca de mí. Lea sobre lo que soy, lo que hago y lo que son mis pasiones.
+title: Acerca de mi, acerca de este blog.
+description: Descubre un poco más acerca de mí, lo que soy, lo que hago y lo que me apasiona.
 permalink: /about/
 ---
 
+*No me gusta extenderme sobre cosas innecesarias de mi, así que lo resumiré en un renglón:*
+ 
+## Cardionauta, Latinoamericano, ingeniero de sistemas, amante del arte, el hacking y las cosas hechas con cariño e inteligencia. ૐ
 
-
-## Cardionauta, Latinoamericano, ingeniero de sistemas, amante del arte, el hacking y las cosas hechas con cariño e inteligencia.
+*De este blog si quiero advertir que para acceder a los contenidos SIEMPRE se ha de dar un click sobre los títulos ó las imágenes que acompañan los textos.*
 
 *Con el fín de facilitar la lectura y permitir acceder a todos los artículos, estos se han ordenado por orden cronológico de publicación en su respectivo* [Archivo](//el3ctron.github.io/archivo/). *Si desea conocer las últimas actualizaciones y cambios digite su mail en la casilla de suscripción del costado derecho, ó en los enlaces hacia las redes sociales que aparecen abajo, al fondo de la página.*
 

@@ -10,7 +10,7 @@ categories:
 - Miscellaneous
 ---
 
-coincidencias espontáneas
+Mario Benedetti en un manual paso a paso para la distinción de lo que es útil.
 
 <!-- more -->
 ---
@@ -38,7 +38,7 @@ no me sirve
 no me sirve tan bueno
 tanto trueno
 
-el coraje tan docil
+el coraje tan dócil
 la bravura tan chirle
 la intrepidez tan lenta
 no me sirve
@@ -73,9 +73,6 @@ sin medalla
 me sirve la modestia
 de tu orgullo posible
 y tu mano segura
-si me sirve
-
-me sirve tu sendero
-compañero.
+si me sirve..
 
 Mario Benedetti
