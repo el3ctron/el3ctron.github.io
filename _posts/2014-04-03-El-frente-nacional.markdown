@@ -10,9 +10,9 @@ categories:
 - Miscellaneous
 ---
 
-*La gente se queja de los mismos de siempre, pero chistosamente vuelven a votar por ellos; encuentro que hay desconocimiento de la historia y los mecanismos que llevan a las personas a repetir una y otra vez, el mismo voto, con los mismos de siempre.*
-
 *En este artículo se hablará de cómo identificar el principal mecanismo de manipulación y a sus responsables, y de esta forma, dejar abierto el camino a la generación de un voto estructurado, consecuente y en todo lo que sea posible inteligente.*
+
+*La gente se queja de los mismos de siempre, pero chistosamente vuelven a votar por ellos, encuentro que hay desconocimiento, el mismo voto vuelve a darse, una adorable profesora, decía que quien no conoce su historia está condenado a repetirla.*
 
 <!-- more -->
 ---
