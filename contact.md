@@ -5,6 +5,8 @@ description: Ponte en contacto conmigo si tienes alguna duda o simplemente quier
 permalink: /contacto/
 ---
 
+Para facilitar la lectura y permitir acceder a todos los artículos, estos se han ordenado por orden cronológico de publicación en su respectivo* [Archivo](//el3ctron.github.io/archivo/). *Si desea conocer las últimas actualizaciones y cambios digite su mail en la casilla de suscripción del costado derecho, ó en los enlaces hacia las redes sociales que aparecen abajo, al fondo de la página.*
+
 Me gusta compartir cosas, soy una persona bastante *social*, así que dispuse algunos recursos para ser contactado fácilmente..
 
 - En mi cuenta de [twitter](//twitter.com/el3ctron) tengo centrada toda mi actividad pública, ahí suelo referenciar enlaces relevantes y comentarios.
