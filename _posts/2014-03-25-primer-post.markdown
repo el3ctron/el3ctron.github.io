@@ -16,13 +16,12 @@ Esta es una iniciativa para...
 
 <!-- more -->
 
-Esta es una iniciativa de descentralización de la información.
-Esta es una iniciativa para comunicar fortaleza en la conciencia.
-Este es un espacio para la realización del corazón.
+Esta es una iniciativa de descentralización de la información, para comunicar fortaleza en la conciencia, este es un espacio para la realización del corazón.
+
+
 
 Nunca más dependiente de ninguna plataforma.
 
-## Que sea la autonomía y la libertad.
-## ॐ @el3ctron
+## Que sea la autonomía y la libertad. ॐ
 
 Latinoamericano, cardionauta, ingeniero de sistemas, amante del arte, el hacking y las cosas hechas con cariño e inteligencia.

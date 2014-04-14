@@ -3,6 +3,7 @@ author: el3ctron
 comments: true
 date: 2014-04-08 19:36
 layout: post
+permalink: /que-es-arte/
 slug: que-es-arte
 title: ¿qué es arte?
 description: Apreciaciones personales y resumidas sobre un concepto que vá a la misma altura del amor y la vida.
