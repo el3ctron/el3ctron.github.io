@@ -12,10 +12,10 @@ categories:
 
 *En este artículo se hablará del principal mecanismo de poder en Colombia y de esta forma, dejar abierto el camino a la generación de un voto estructurado, consecuente y en todo lo que sea posible inteligente.*
 
-[![WordPress to Jekyll](/wp-content/uploads/por_tema/politica/historia.jpg)](//el-frente-nacional)
-
 <!-- more -->
 ---
+
+[![WordPress to Jekyll](/wp-content/uploads/por_tema/politica/historia.jpg)](//el3ctron.github.io/el-frente-nacional)
 
 <br>
 <br>
