@@ -19,4 +19,3 @@ Me gusta compartir cosas, soy una persona bastante *social*, así que dispuse al
 - Dirección de litecoin: LUwxEuJHxJHnr3kHDYsMYkFTx6dXwLcFDq
 
 Happy hacking!
-
