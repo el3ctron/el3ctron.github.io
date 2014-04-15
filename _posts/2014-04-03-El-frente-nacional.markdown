@@ -12,29 +12,12 @@ categories:
 
 *En este artículo se hablará del principal mecanismo de poder en Colombia y de esta forma, dejar abierto el camino a la generación de un voto estructurado, consecuente y en todo lo que sea posible inteligente.*
 
+[![WordPress to Jekyll](/wp-content/uploads/por_tema/politica/historia.jpg)](//el-frente-nacional)
+
 <!-- more -->
 ---
 
-{{{
-|-------------+---------------------+-------------------------------|
-| Tendencia   | Inicio de mandato   | Presidente                    |
-|-------------+---------------------+-------------------------------|
-| CONSERVADOR | 7 de agosto de 1958 | Alberto Lleras Camargo        |
-| LIBERAL     | 7 de agosto de 1962 | Guillermo León Valencia Muñoz |
-| LIBERAL     | 7 de agosto de 1966 | Carlos Lleras Restrepo        |
-| CONSERVADOR | 7 de agosto de 1970 | Misael Pastrana Borrero       |
-| CONSERVADOR | 7 de agosto de 1974 | Alfonso López Michelsen       |
-| CONSERVADOR | 7 de agosto de 1978 | Julio César Turbay Ayala      |
-| CONSERVADOR | 7 de agosto de 1982 | Belisario Betancur Cuartas    |
-| LIBERAL     | 7 de agosto de 1986 | Virgilio Barco Vargas         |
-| LIBERAL     | 7 de agosto de 1990 | César Gaviria Trujillo        |
-| LIBERAL     | 7 de agosto de 1994 | Ernesto Samper Pizano         |
-| CONSERVADOR | 7 de agosto de 1998 | Andrés Pastrana Arango        |
-| CONSERVADOR | 7 de agosto de 2002 | Álvaro Uribe Vélez            |
-| CONSERVADOR | 7 de agosto de 2006 | Álvaro Uribe Vélez            |
-| LIBERAL     | 7 de agosto de 2010 | Juan Manuel Santos            |
-|-------------+---------------------+-------------------------------|
-}}}<br>
+<br>
 <br>
 Las mayorías se quejan de "los mismos de siempre" pero chistosamente vuelven a votar por esos mismos. El fenómeno es curiosísimo: Votan, los roban en la cara, se quejan y vuelven y les dan el voto y vuelven y los roban, y vuelven a votar y así durante más de tres generaciones. ¿qué explica el que millones de personas adultas caigan una y otra vez en el mismo engaño, de una forma tan ingenua y (permitanme repetirlo) tan chistosa y ridícula? Las razones, son múltiples, pero creo que hay una que no es tán evidente y que en mi concepto es la más clave de todas:<br>
 <br>
