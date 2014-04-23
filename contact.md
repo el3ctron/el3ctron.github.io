@@ -5,9 +5,7 @@ description: Ponte en contacto conmigo si tienes alguna duda o simplemente quier
 permalink: /contacto/
 ---
 
-Para facilitar la lectura y permitir acceder a todos los artículos, estos se han ordenado por orden cronológico de publicación en su respectivo* [Archivo](//el3ctron.github.io/archivo/). *Si desea conocer las últimas actualizaciones y cambios digite su mail en la casilla de suscripción del costado derecho, ó en los enlaces hacia las redes sociales que aparecen abajo, al fondo de la página.*
-
-Me gusta compartir cosas, soy una persona bastante *social*, así que dispuse algunos recursos para ser contactado fácilmente..
+Para facilitar la lectura y permitir acceder a todos los artículos, estos se han ordenado por orden cronológico de publicación en su respectivo* [Archivo](//el3ctron.github.io/archivo/). *Si desea conocer las últimas actualizaciones y cambios digite su mail en la casilla de suscripción del costado derecho, ó en los enlaces hacia las redes sociales que aparecen abajo, al fondo de la página.* Me gusta compartir cosas, soy una persona bastante *social*, así que dispuse algunos recursos para ser contactado fácilmente:
 
 - En mi cuenta de [twitter](//twitter.com/el3ctron) tengo centrada toda mi actividad pública, ahí suelo referenciar enlaces relevantes y comentarios.
 - En [facebook](//facebook.com/el3ctr0n) hay una página en la que escencialmente publico lo mismo que en twitter; ¿para que coño? bueno, algunas personas usan mas un servicio que el otro, pero sobre todo por que los mensajes que escriben por ese medio me llegan de forma inmediata y en tanto puedo los respondo :)
