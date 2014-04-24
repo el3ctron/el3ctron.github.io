@@ -114,15 +114,15 @@ y lo que podríamos hacer con el
 
 y con ellos
 
-y TEMEN,
+y TEMEN;
 
 lo que un oscuro corazón no les permite ver,
 
-es que no somos como ellos.
+es que no somos como ellos,
 
-Nuestros sueños son mas grandes para rebajarnos a las mismas maniobras de seres tan confundidos,
+nuestros Sueños son mas grandes para rebajarnos a las mismas maniobras de seres tan confundidos.
 
-las fuerzas que enfrentamos son tan oscuras como poderosas,
+Tal vez no sobbre decir que las fuerzas que enfrentamos son tan oscuras como poderosas,
 
 y de ese tamaño y un poco mas grande mis amigos, es el heroismo que se ha de cultivar en el alma.
 
@@ -142,9 +142,11 @@ amenazan
 
 calumnian
 
+conspiran
+
 y pese a tantas cosas adversas estamos aquí
 
-FIRMES!
+##FIRMES!
 
 lo que tiene capacidad para mantenerse es Fuerte
 
@@ -200,9 +202,9 @@ Sepan, sin dudar, que no hay algo que tenga mas valor que eso en lo que creemos,
 
 y eso no lo pueden comprar
 
-no lo pueden dañar
-
 por más que lo intente cualquier malintencionado
+
+no lo pueden dañar
 
 todo esto está por encima de esas cosas por las que las mayorías se creen pasajeramente victoriosas,
 
@@ -240,6 +242,10 @@ la frente en alto!
 
 nunca declinar!
 
-que se enciendan nuestros corazones de vigor y vida!
+que se enciendan nuestros corazones de vigor y claridad!
 
-A LA CARGA!
+que la fortaleza sea toda en nuestra casa.
+
+##A LA CARGA!
+
+<br><br><br>
