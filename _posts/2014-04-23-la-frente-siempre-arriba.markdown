@@ -17,7 +17,7 @@ categories:
 
 <!-- more -->
 ---
-nuestra fortaleza no radica en los tamales
+Nuestra fortaleza no radica en los tamales
 
 ó en la plata
 
@@ -29,7 +29,11 @@ nuestra fortaleza no radica en los tamales
 
 Nuestra fortaleza no necesita de otras cosas y por eso es PURA, íntegra.
 
-En nuestras filas se sabe que la vida y dignidad de las personas, la soberanía vá por encima de una miserable y siempre pasajera rentabilidad.
+En nuestras filas se sabe que la vida y dignidad de las personas, 
+
+el derecho a la soberanía 
+
+ván por encima de una miserable y siempre pasajera rentabilidad.
 
 no le debemos nada a nadie
 
@@ -37,23 +41,21 @@ no tenemos nada que ocultar
 
 y por eso nuestra paz tiene la posibilidad de ser inalterable
 
-y por eso nuestras banderas siempre han sido, son y serán victoriosas
+y por eso nuestras banderas siempre han sido, son y serán victoriosas.
 
+<br>
+No hay armas que nos defiendan,
 
-no hay armas que nos defiendan,
-
-nuestro fuego no es visible!
-
-y pese a eso irradia
+nuestro fuego no es visible y pese a eso irradia!
 
 su naturaleza lo transforma todo no destruyendo sino creando
 
 acto sagrado de la destrucción creativa
 
-la historia demuestra que las mas grandes revoluciones del planeta se han encendido en fuegos parecidos
+la historia demuestra que las mas grandes revoluciones del planeta se han encendido en fuegos parecidos.
 
-
-no importa ese resultado
+<br>
+No importa ese resultado
 
 la mezcla de un amar
 
@@ -65,8 +67,8 @@ imposible de ser detenida,
 
 tal vez atajada, PERO NUNCA DETENIDA.
 
-
-una planta no crece gritándola
+<br>
+Una planta no crece gritándola
 
 todo tiene su ritmo
 
@@ -78,7 +80,7 @@ en este sector del universo todo es posible
 
 es lento, claro,
 
-es duro, pero es hermoso
+es duro, claro, pero es hermoso
 
 así tiene que ser!
 
@@ -86,16 +88,16 @@ hasta las colosales explosiones solares toman décadas
 
 y llegan en el tiempo perfecto.
 
-
-somos poquitos aún
+<br>
+Somos poquitos aún
 
 parecieramos estar condenados a una derrota tras otra
 
-pero no necesitamos masas inmensas para ser fuertes
+pero no necesitamos masas inmensas para ser fuertes,
 
-el que cuando siendo inocentes nos amenazen, nos inhabiliten, nos estigmaticen, nos calumnien, nos encarcelen y hasta nos maten
+se es el tercer paso de las 4 máximas enunciadas por Gandhi
 
-es el tercer paso de las 4 máximas enunciadas por Gandhi
+cuando siendo inocentes nos amenazen, nos inhabiliten, nos estigmaticen, nos calumnien, nos encarcelen y hasta nos maten
 
 y es señal
 
@@ -117,8 +119,8 @@ es que no somos como ellos.
 
 Nuestros sueños son mas grandes para rebajarnos a las mismas maniobras de seres tan confundidos.
 
-
-¿cual tragedia?
+<br>
+Diganme, ¿cual tragedia?
 
 por días más difíciles esta forma de pensamiento ha pasado, este no es el día en que asesinaran a Gaitán, ESTAMOS VIVOS! Vivos y con su sueño intacto.
 
@@ -132,10 +134,14 @@ calumnian
 
 y pese a tantas cosas adversas estamos aquí
 
-lo que tiene capacidad para mantenerse es fuerte
+FIRMES!
 
+lo que tiene capacidad para mantenerse es Fuerte
 
-Dicen que cualquier sección cerebral usada con frecuencia aumenta su tamaño, pues al hacerlo se fortalecen las conexiones. Si el mundo está torcido tienen la oportunidad de ser unos campeones en el arte del pensamiento correcto, en el cultivo de la conciencia, hasta que sea en la realidad. Este planeta es un genuino gimnasio del alma.
+la perennidad es eso que se le escapa a esas otras ideologías de pacotilla que se esfuman con la moda.
+
+<br>
+Dicen que cualquier sección cerebral usada con frecuencia aumenta su tamaño, pues al hacerlo se fortalecen las conexiones. Si el mundo está torcido entonces tenemos la oportunidad de ser unos campeones en el arte del pensamiento que apunta a lo correcto, en el cultivo de la conciencia, hasta que sea en la realidad. Este planeta es un genuino gimnasio del alma.
 
 el cambio de paradigma es saludable y obligatorio, la realidad nos respalda,
 
@@ -143,18 +149,20 @@ la competitividad no podría llegar a un nivel mayor sin causar daño a terceros
 
 el individualismo ya alcanzó su auge y cae
 
+la realidad nos respalda
+
 el despertar de la especie humana tiene que ver con la solidaridad
 
 con el trabajo en equipo y la integridad
 
-y así de apoco florece el humanismo inteligente por todo el planeta,
+y así de apoco florece el humanismo inteligente en todos los rincones,
 
 uno muy parecido a ese del renacimiento
 
 no tanto por una necesidad política, sino por que es la forma en como podemos convivir y ser coherentes con lo que una conciencia en paz dicta.
 
-
-ya viene el tiempo en donde se dén los frutos de este árbol hermoso y
+<br>
+Ya viene el tiempo en donde se dén los frutos de este árbol hermoso y
 
 millones estarán respaldándonos
 
@@ -168,15 +176,15 @@ es la de irradiarle a las personas valentía, vida y alegría,
 
 la hacerle entender a las personas su inconmesurable valor
 
-las razones poderosas que explican el por que no hay que temer
+las razones poderosas que explican el porque no hay que temer
 
-que se puede apostar a un sueño y cumplirlo
+se puede apostar a un sueño y cumplirlo
 
 somos hijos de los bravos que enfrentaron a una superpotencia doscientos años atrás
 
 y la vencieron.
 
-
+<br>
 no hay nada que tenga mas valor que eso en lo que creemos
 
 no lo pueden comprar
@@ -195,11 +203,11 @@ así que la frente siempre arriba
 
 la realidad siempre vá a ser dura
 
-pero no lo suficientemente dura para arrasarnos
+pero no lo suficientemente dura para arrasarnos.
 
-dolió Gaitán, dolió Jaime Pardo Leal, dolió Pizarro
+Dolió Gaitán, dolió Jaime Pardo Leal, dolió Pizarro
 
-quienes la pelean y se mantienen
+quienes la luchan y se mantienen
 
 y tienen la certeza de que despliegan un juego limpio
 
@@ -207,13 +215,15 @@ ya ganaron
 
 eso es un arte,
 
-no le des gusto a quienes quieren verte triste.
+recuerda, no le des gusto a quienes quieren verte triste.
 
-Tu conciencia no patrocina muertes, ó inequidad, está limpia.
+Tu conciencia y tu voto no patrocina muertes, ó inequidad, está limpia.
 
 Tienes el derecho a dormir tranquilo por que tus sueños son preciosos, puros.
 
 quien dijo que era tiempo para bajar la frente?
+
+la frente en alto!
 
 nunca declinar!
 
