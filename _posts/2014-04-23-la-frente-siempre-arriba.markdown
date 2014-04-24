@@ -88,6 +88,7 @@ hasta las colosales explosiones solares toman décadas
 
 y llegan en el tiempo perfecto.
 
+
 <br>
 Somos poquitos aún
 
@@ -117,12 +118,19 @@ lo que un oscuro corazón no les permite ver,
 
 es que no somos como ellos.
 
-Nuestros sueños son mas grandes para rebajarnos a las mismas maniobras de seres tan confundidos.
+Nuestros sueños son mas grandes para rebajarnos a las mismas maniobras de seres tan confundidos,
+
+las fuerzas que enfrentamos son tan oscuras como poderosas, 
+
+y de ese tamaño y un poco mas grande mis amigos, es el heroismo que se ha de cultivar en el alma.
+
 
 <br>
-Diganme, ¿cual tragedia?
+Díganme, ¿cual tragedia?
 
-por días más difíciles esta forma de pensamiento ha pasado, este no es el día en que asesinaran a Gaitán, ESTAMOS VIVOS! Vivos y con su sueño intacto.
+por días más difíciles esta forma de pensamiento ha pasado, 
+
+este no es el día en que asesinaran a Gaitán, ESTAMOS VIVOS! Vivos y con su sueño intacto.
 
 A Gaitán lo mataron, a la UP casi la exterminan
 
@@ -139,6 +147,7 @@ FIRMES!
 lo que tiene capacidad para mantenerse es Fuerte
 
 la perennidad es eso que se le escapa a esas otras ideologías de pacotilla que se esfuman con la moda.
+
 
 <br>
 Dicen que cualquier sección cerebral usada con frecuencia aumenta su tamaño, pues al hacerlo se fortalecen las conexiones. Si el mundo está torcido entonces tenemos la oportunidad de ser unos campeones en el arte del pensamiento que apunta a lo correcto, en el cultivo de la conciencia, hasta que sea en la realidad. Este planeta es un genuino gimnasio del alma.
