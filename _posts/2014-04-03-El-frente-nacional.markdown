@@ -19,7 +19,7 @@ Observe la primera columna de la siguiente tabla:
 
 [![WordPress to Jekyll](/wp-content/uploads/por_tema/politica/historia.jpg)](//el3ctron.github.io/el-frente-nacional)
 
-encuentra un patrón? algo que se repite?<br>
+encuentra un patrón? algo que se repite?, "Locura es hacer lo mismo una vez tras otra y esperar resultados diferentes."<br>
 <br>
 Las mayorías se quejan de "los mismos de siempre" pero chistosamente vuelven a votar por esos mismos. El fenómeno es curiosísimo: Votan, los roban en la cara, se quejan y vuelven y les dan apoyo y vuelven y los roban, y vuelven a votar y así durante más de doscientos años. ¿qué explica el que millones de personas adultas caigan una y otra vez en el mismo engaño, de una forma tan ingenua y (permitanme repetirlo) tan chistosa y ridícula? Las razones, son múltiples, pero creo que hay una que no es tán evidente y que en mi concepto es la más clave de todas:<br>
 <br>

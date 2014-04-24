@@ -11,7 +11,7 @@ categories:
 - Miscellaneous
 ---
 
-*Este texto lo escribí el día de la destitución de Petro, y hoy cobra una connotación y un significado especial.*
+*Este texto lo escribí el día de la destitución de Gustavo Petro, y hoy cobra una connotación y un significado especial. Quedan acá consignadas las premisas que se han de llevar cuando se asume la izquierda como un camino de desarrollo material y espiritual, sobre todo en los tiempos en donde la oscuridad pareciera rodearlo todo.*
 
 [![la frente siempre arriba](/wp-content/uploads/por_tema/politica/11189_10151477842546535_1917920896_n.jpg)](//el3ctron.github.io/la-frente-siempre-arriba/index.html)
 
@@ -29,13 +29,13 @@ Nuestra fortaleza no radica en los tamales
 
 Nuestra fortaleza no necesita de otras cosas y por eso es PURA, íntegra.
 
-En nuestras filas se sabe que la vida y dignidad de las personas, 
+En nuestras filas se sabe que la vida y dignidad de las personas,
 
-el derecho a la soberanía 
+el derecho a la soberanía
 
 ván por encima de una miserable y siempre pasajera rentabilidad.
 
-no le debemos nada a nadie
+No le debemos nada a nadie
 
 no tenemos nada que ocultar
 
@@ -100,9 +100,11 @@ se es el tercer paso de las 4 máximas enunciadas por Gandhi
 
 cuando siendo inocentes nos amenazen, nos inhabiliten, nos estigmaticen, nos calumnien, nos encarcelen y hasta nos maten
 
-y es señal
+y también
 
-de todo el miedo que provocamos en todos esos delincuentes que han ganado el poder untandose las manos de droga y sangre
+es señal
+
+de todo el miedo que provocamos en esos delincuentes que han ganado el poder untandose las manos de droga y sangre
 
 y como esos corruptos han probado el poder
 
@@ -120,7 +122,7 @@ es que no somos como ellos.
 
 Nuestros sueños son mas grandes para rebajarnos a las mismas maniobras de seres tan confundidos,
 
-las fuerzas que enfrentamos son tan oscuras como poderosas, 
+las fuerzas que enfrentamos son tan oscuras como poderosas,
 
 y de ese tamaño y un poco mas grande mis amigos, es el heroismo que se ha de cultivar en el alma.
 
@@ -128,7 +130,7 @@ y de ese tamaño y un poco mas grande mis amigos, es el heroismo que se ha de cu
 <br>
 Díganme, ¿cual tragedia?
 
-por días más difíciles esta forma de pensamiento ha pasado, 
+por días más difíciles esta forma de pensamiento ha pasado,
 
 este no es el día en que asesinaran a Gaitán, ESTAMOS VIVOS! Vivos y con su sueño intacto.
 
@@ -150,7 +152,7 @@ la perennidad es eso que se le escapa a esas otras ideologías de pacotilla que 
 
 
 <br>
-Dicen que cualquier sección cerebral usada con frecuencia aumenta su tamaño, pues al hacerlo se fortalecen las conexiones. Si el mundo está torcido entonces tenemos la oportunidad de ser unos campeones en el arte del pensamiento que apunta a lo correcto, en el cultivo de la conciencia, hasta que sea en la realidad. Este planeta es un genuino gimnasio del alma.
+Dicen que cualquier sección cerebral usada con frecuencia aumenta su tamaño, pues al hacerlo se fortalecen las conexiones. Si el mundo está torcido entonces tenemos la oportunidad de ser unos campeones en el arte del pensamiento que apunta a lo correcto, en el cultivo de la conciencia, hasta que SEA EN LA REALIDAD. No se puede perder de vista que este planeta es un genuino gimnasio del alma.
 
 el cambio de paradigma es saludable y obligatorio, la realidad nos respalda,
 
@@ -183,32 +185,32 @@ es primero la de la fuerza
 
 es la de irradiarle a las personas valentía, vida y alegría,
 
-la hacerle entender a las personas su inconmesurable valor
+la hacerle entender a las personas su inconmesurable valor!
 
-las razones poderosas que explican el porque no hay que temer
+las razones poderosas que explican el porque no hay que temer,
 
-se puede apostar a un sueño y cumplirlo
+colombianos, se puede apostar a un sueño y cumplirlo
 
 somos hijos de los bravos que enfrentaron a una superpotencia doscientos años atrás
 
 y la vencieron.
 
 <br>
-no hay nada que tenga mas valor que eso en lo que creemos
+Sepan, sin dudar, que no hay algo que tenga mas valor que eso en lo que creemos, que es justamente lo que soñamos,
 
-no lo pueden comprar
+y eso no lo pueden comprar
 
 no lo pueden dañar
 
-por más que lo intenten
+por más que lo intente cualquier malintencionado
 
-todo esto está por encima de esas cosas por las que las mayorías se creen pasajeramente victoriosas
+todo esto está por encima de esas cosas por las que las mayorías se creen pasajeramente victoriosas,
 
-lo nuestro no es pasajero
+y lo nuestro no es pasajero
 
 lo nuestro es eternamente victorioso
 
-así que la frente siempre arriba
+así que la frente siempre arriba!
 
 la realidad siempre vá a ser dura
 
@@ -222,9 +224,11 @@ y tienen la certeza de que despliegan un juego limpio
 
 ya ganaron
 
-eso es un arte,
+esos nunca mueren,
 
-recuerda, no le des gusto a quienes quieren verte triste.
+eso es un arte;
+
+no le des gusto a quienes quieren verte triste.
 
 Tu conciencia y tu voto no patrocina muertes, ó inequidad, está limpia.
 
@@ -236,3 +240,6 @@ la frente en alto!
 
 nunca declinar!
 
+que se enciendan nuestros corazones de vigor y vida!
+
+A LA CARGA!
