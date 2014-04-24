@@ -92,19 +92,19 @@ y llegan en el tiempo perfecto.
 <br>
 Somos poquitos aún
 
-parecieramos estar condenados a una derrota tras otra
+pareciéramos estar condenados a una derrota tras otra
 
 pero no necesitamos masas inmensas para ser fuertes,
 
 se es el tercer paso de las 4 máximas enunciadas por Gandhi
 
-cuando siendo inocentes nos amenazen, nos inhabiliten, nos estigmaticen, nos calumnien, nos encarcelen y hasta nos maten
+cuando siendo inocentes nos amenacen, nos inhabiliten, nos estigmaticen, nos calumnien, nos encarcelen y hasta nos maten
 
 y también
 
 es señal
 
-de todo el miedo que provocamos en esos delincuentes que han ganado el poder untandose las manos de droga y sangre
+de todo el miedo que provocamos en esos delincuentes que han ganado el poder untándose las manos de droga y sangre
 
 y como esos corruptos han probado el poder
 
@@ -122,9 +122,9 @@ es que no somos como ellos,
 
 nuestros Sueños son mas grandes para rebajarnos a las mismas maniobras de seres tan confundidos.
 
-Tal vez no sobbre decir que las fuerzas que enfrentamos son tan oscuras como poderosas,
+Tal vez no sobre decir que las fuerzas que enfrentamos son tan oscuras como poderosas,
 
-y de ese tamaño y un poco mas grande mis amigos, es el heroismo que se ha de cultivar en el alma.
+y de ese tamaño y un poco mas grande mis amigos, es el heroísmo que se ha de cultivar en el alma.
 
 
 <br>
@@ -175,7 +175,7 @@ uno muy parecido a ese del renacimiento
 no tanto por una necesidad política, sino por que es la forma en como podemos convivir y ser coherentes con lo que una conciencia en paz dicta.
 
 <br>
-Ya viene el tiempo en donde se dén los frutos de este árbol hermoso y
+Ya viene el tiempo en donde se den los frutos de este árbol hermoso y
 
 millones estarán respaldándonos
 
@@ -189,7 +189,7 @@ es la de irradiarle a las personas valentía, vida y alegría,
 
 la hacerle entender a las personas su inconmesurable valor!
 
-las razones poderosas que explican el porque no hay que temer,
+las razones poderosas que explican el porqué no hay que temer,
 
 colombianos, se puede apostar a un sueño y cumplirlo
 
@@ -214,7 +214,7 @@ lo nuestro es eternamente victorioso
 
 así que la frente siempre arriba!
 
-la realidad siempre vá a ser dura
+la realidad siempre va a ser dura
 
 pero no lo suficientemente dura para arrasarnos.
 
@@ -236,7 +236,7 @@ Tu conciencia y tu voto no patrocina muertes, ó inequidad, está limpia.
 
 Tienes el derecho a dormir tranquilo por que tus sueños son preciosos, puros.
 
-quien dijo que era tiempo para bajar la frente?
+¿quién dijo que era tiempo para bajar la frente?
 
 la frente en alto!
 
@@ -249,3 +249,4 @@ que la fortaleza sea toda en nuestra casa.
 ##A LA CARGA!
 
 <br><br><br>
+
