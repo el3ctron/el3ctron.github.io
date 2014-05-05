@@ -150,13 +150,13 @@ y pese a tantas cosas adversas estamos aquí
 
 lo que tiene capacidad para mantenerse es Fuerte
 
-la perennidad es eso que se le escapa a esas otras ideologías de pacotilla que se esfuman con la moda.
+la perennidad es eso que se le escapa a esas otras ideologías de pacotilla que se esfuman con la moda, con tiquetes y ofertas baratas.
 
 
 <br>
-Dicen que cualquier sección cerebral usada con frecuencia aumenta su tamaño, pues al hacerlo se fortalecen las conexiones. Si el mundo está torcido entonces tenemos la oportunidad de ser unos campeones en el arte del pensamiento que apunta a lo correcto, en el cultivo de la conciencia, hasta que SEA EN LA REALIDAD. No se puede perder de vista que este planeta es un genuino gimnasio del alma.
+Dicen que cualquier sección cerebral usada con frecuencia aumenta su tamaño ya que al hacerlo las conexiones neuronales son fortalecidas; si el mundo está tan torcido entonces amigos, tenemos la oportunidad de ser unos guerreros imbatibles en el arte del pensamiento que apunta hacia lo correcto, campeones en el cultivo de la conciencia, hasta que SEA EN LA REALIDAD. Nunca perder de vista que este planeta es un genuino gimnasio del alma.
 
-el cambio de paradigma es saludable y obligatorio, la realidad nos respalda,
+El cambio de paradigma es saludable y obligatorio, la realidad nos respalda,
 
 la competitividad no podría llegar a un nivel mayor sin causar daño a terceros
 
@@ -220,7 +220,9 @@ pero no lo suficientemente dura para arrasarnos.
 
 Dolió Gaitán, dolió Jaime Pardo Leal, dolió Pizarro
 
-quienes la luchan y se mantienen
+duelen todos esos indígenas, que mueren defendiendo su tierra y sus familias y su cultura a punto de ser extinguida,
+
+pero quienes la luchan y se mantienen
 
 y tienen la certeza de que despliegan un juego limpio
 
