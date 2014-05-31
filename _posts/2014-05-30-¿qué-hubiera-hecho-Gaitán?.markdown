@@ -11,7 +11,7 @@ categories:
 - Miscellaneous
 ---
 
-*Un intento por hackear la mente de Gaitán.*
+*Si una desición tan importante como la paz queda en manos de un inepto, ¿cual debería ser la postura a adoptar? Este es un intento por revelar la respuesta mientras hacemos un intento por hackear la mente de Gaitán.*
 
 [![¿qué hubiera hecho Gaitán?](/wp-content/uploads/por_tema/politica/14225_493456167351899_82490544_n.jpg)](//el3ctron.github.io/que-hubiera-hecho-Gaitan)
 
@@ -28,7 +28,7 @@ Entonces surge la pregunta, ¿a qué clase de paz se le estaría apostando? Por 
 
 2. uno analiza los resultados de las últimas elecciones y uno se dá cuenta que los lugares en donde el conservatismo (es decir, Uribe) triunfa, son coincidencialmente zonas en donde la guerrilla opera violentamente.
 
-3. Quienes son entendidos en las cifras, saben sobre los cientos de miles de millones de pesos del erario público que a cada SEGUNDO se van malgastados en guerra. Quienes se lucran por la guerra, justifican que no se puede invertir en educación ó investigación ó desarrollo de infraestructura ya que no hay seguridad; Sabemos que el gobierno de Uribe centró su discurso en la seguridad y bien sabemos lo que en realidad eso significó, y hoy tenemos la oportunidad de quitarles a ese grupo de delincuentes la excusita esa chimba para dilapidar el presupuesto nacional.
+3. Quienes son entendidos en las cifras, saben sobre los cientos de miles de millones de pesos del erario que a cada SEGUNDO se van malgastados en guerra. Quienes se lucran por la guerra, justifican que no se puede invertir en educación ó investigación ó desarrollo de infraestructura ya que no hay seguridad; Sabemos que el gobierno de Uribe centró su discurso en la seguridad y bien sabemos lo que en realidad eso significó, y hoy tenemos la oportunidad de quitarles a ese grupo de delincuentes la excusita esa chimba para dilapidar el presupuesto nacional.
 
 Gaitán no fué guerrillero ni estuvo en la cárcel, Mujica si, y mirenlo. Hasta la Cuba del mismísimo Fidel Castro declara la urgencia de la paz para Colombia en la propia pluma de aquel legendario revolucionario. Chávez en vida lo intentó tantas veces como pudo ofreciendose a sí mismo y a su país como mediador y garante, y nosotros, estando en una izquierda más centrada, ¿por qué no? La guerra como el conflicto y los tipos de lucha revolucionaria en nuestro tiempo han evolucionado a campos más abstractos y en ese sentido es coherente adaptar nuevas formas de lucha. No declinar! Es preciso continuar.
 
