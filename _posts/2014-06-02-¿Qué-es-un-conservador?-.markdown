@@ -11,7 +11,7 @@ categories:
 - Miscellaneous
 ---
 
-*En este texto ilustraré los ejes fundamentales sobre los que se edifica el pensamiento de un conservador.*
+*En este texto ilustraré los ejes fundamentales sobre los que se "edifica" el "pensamiento" de un conservador.*
 
 [![¿Qué es un conservador?](/wp-content/uploads/por_tema/politica/60592_468701976486153_548131173_n.jpg)](//el3ctron.github.io/Que-es-un-conservador)
 
