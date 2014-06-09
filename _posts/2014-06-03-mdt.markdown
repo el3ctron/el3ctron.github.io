@@ -13,18 +13,25 @@ categories:
 
 *markdown test*
 
-[![mdt](/wp-content/uploads/por_tema/arte/woredpress-to-jekyll.png)](./mdt "markdown test")
+[![mdt](/wp-content/uploads/por_tema/arte/woredpress-to-jekyll.png)](./mdt "markdown test...[click para entrar!]")
 
 <!-- more -->
 ---
 
-| Tables        | Are           | Cool  |
-| ------------- |:-------------:| -----:|
-| col 3 is      | right-aligned | $1600 |
-| col 2 is      | centered      |   $12 |
-| zebra stripes | are neat      |    $1 |
+| ---------------Tables---------------        | ---------------Are---------------           | ---------------Cool---------------  | 45 |
+| ------------- |:-------------:| -----:|:-:|
+| col 3 is      | right-aligned | $1600 | - |
+| col 2 is      | centered      |   $12 | - |
+| zebra stripes | are neat      |    $1 | - |
 
+	code block
 
+--Markdown-- | --Less-- | --Pretty--
+--------------- |:---------------:| ---------------
+*Still* | `renders` | **nicely**
+1 | 2 | 3|
+
+	:otro:
 
 [I'm an inline-style link](https://www.google.com)
 
