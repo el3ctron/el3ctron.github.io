@@ -11,7 +11,7 @@ categories:
 - Miscellaneous
 ---
 
-*Si una decisión tan importante como la paz queda en manos de un inepto, ¿cual debería ser la postura a adoptar? Algunos cercanos cuestionaron mi posición respecto a la paz, y encontré necesario ir hasta la base y preguntarme ¿qué hubiera hecho en este caso Gaitán? Este es un intento por revelar la respuesta mientras hacemos un intento por hackear el pensamiento del caudillo.*
+*Si una decisión tan importante como la paz queda en manos de un inepto, ¿Cuál debería ser la postura a adoptar? Algunos cercanos cuestionaron mi posición respecto a la paz, y encontré necesario ir hasta la base y preguntarme ¿qué hubiera hecho en este caso Gaitán? Este es un intento por revelar la respuesta mientras hacemos un intento por hackear el pensamiento del caudillo.*
 
 [![¿qué hubiera hecho Gaitán?](/wp-content/uploads/por_tema/politica/14225_493456167351899_82490544_n.jpg)](//el3ctron.github.io/que-hubiera-hecho-Gaitan)
 
