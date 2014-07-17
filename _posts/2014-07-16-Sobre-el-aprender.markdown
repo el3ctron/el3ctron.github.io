@@ -13,7 +13,7 @@ categories:
 
 *Sobre el aprender*
 
-[![Sobre el aprender](/wp-content/uploads/por_tema/arte/1390677_231613883664792_842685397_n.jpg)](//el3ctron.github.io/Sobre-el-aprender "Sobre el aprender... [CLICK PARA ENTRAR AL ARTÍCULO]")
+[![Sobre el aprender](/wp-content/uploads/por_tema/arte/1390677_231613883664792_842685397_n.jpg)](./Sobre-el-aprender "Sobre el aprender... [CLICK PARA ENTRAR AL ARTÍCULO]")
 
 <!-- more -->
 ---
