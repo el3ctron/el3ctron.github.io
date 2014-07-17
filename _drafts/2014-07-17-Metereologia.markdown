@@ -13,7 +13,7 @@ categories:
 
 *Un texto que debía por ahí*
 
-[![Metereologia](/wp-content/uploads/por_tema/arte/Huracan_Ernesto_Campeche-51.jpg)](//el3ctron.github.io/Metereologia "Un texto que debía por ahí... [CLICK PARA ENTRAR AL ARTÍCULO]")
+[![Metereologia](/wp-content/uploads/por_tema/arte/Huracan_Ernesto_Campeche-51.jpg)](/Metereologia "Un texto que debía por ahí... [CLICK PARA ENTRAR AL ARTÍCULO]")
 
 <!-- more -->
 ---

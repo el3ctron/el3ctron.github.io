@@ -11,7 +11,7 @@ categories:
 - Miscellaneous
 ---
 
-*Sobre el aprender*
+*Con el tiempo...*
 
 [![Sobre el aprender](/wp-content/uploads/por_tema/arte/1390677_231613883664792_842685397_n.jpg)](./Sobre-el-aprender "Sobre el aprender... [CLICK PARA ENTRAR AL ARTÍCULO]")
 
