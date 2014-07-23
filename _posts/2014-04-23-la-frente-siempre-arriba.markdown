@@ -114,7 +114,7 @@ y lo que podríamos hacer con el
 
 y con ellos
 
-y TEMEN;
+TEMEN;
 
 lo que un oscuro corazón no les permite ver,
 
@@ -246,9 +246,9 @@ nunca declinar!
 
 que se enciendan nuestros corazones de vigor y claridad!
 
-que la fortaleza sea toda en nuestra casa.
+que la luz y la fortaleza sea toda en nuestra casa.
 
-##A LA CARGA!
+###A LA CARGA!
 
 <br><br><br>
 
