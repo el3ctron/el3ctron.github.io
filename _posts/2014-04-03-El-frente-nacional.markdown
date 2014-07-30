@@ -10,7 +10,7 @@ categories:
 - Miscellaneous
 ---
 
-*La gente quiere cambio, pero ¿qué significa ese cambio? ¿que es lo que se tiene que cambiar? Llevamos más de doscientos años en las mismas y se sabe que es necesario girar, pero ¿por donde empezamos? En este artículo se da pié a esa respuesta para así dejar abierto el camino a la generación de un voto estructurado, consecuente y en todo lo que sea posible inteligente, uno que apunte a eso que en el fondo, todos anhelamos, que sea el cambio.*
+*La gente quiere cambio, pero ¿qué significa ese cambio? ¿que es lo que se tiene que cambiar? Llevamos más de doscientos años en las mismas y se sabe que es necesario girar, pero ¿por donde empezamos? En este artículo se da pié a la respuestas de esas preguntas, para así dejar abierto el camino a la generación de un voto estructurado, consecuente y en todo lo que sea posible inteligente, uno que apunte a eso que en el fondo todos anhelamos: un verdadero cambio.*
 
 <!-- more -->
 ---
@@ -19,7 +19,7 @@ Observe la primera columna de la siguiente tabla:
 
 [![WordPress to Jekyll](/wp-content/uploads/por_tema/politica/historia.jpg)](//el3ctron.github.io/el-frente-nacional)
 
-```En el cuadro anterior encuentra un patrón? algo que se repite? ¿está clarísimo no? ¿por qué seguir apoyándolos? "Locura es hacer lo mismo una vez tras otra y esperar resultados diferentes." ES HORA DEL CAMBIO```<br>
+```En el cuadro anterior ¿encuentra un patrón? ¿algo que se repite? Está clarísimo ¿no? "Locura es hacer lo mismo una vez tras otra y esperar resultados diferentes."```<br>
 <br>
 Las mayorías se quejan de "los mismos de siempre" pero chistosamente vuelven a votar por esos mismos. El fenómeno es curiosísimo: Entran las elecciones, los ciudadanos se creen los bombos y los platillos que salen por radio y televisión, votan y ese voto sube a algún liberal/conservador, esa es la primera parte, luego la novela, los que subieron los roban en la cara, incumplen promesas, se descubre un torcido, y todo eso anterior ocurre mientras suben los impuestos y los precios, comienza la novela, los ciudadanos se quejan, nadie los escucha y mágicamente vuelven las temporadas de elecciones y vuelven y les dan apoyo a los mismos y esos mismos vuelven y los roban, y vuelven a votar y vuelven y los suben y vuelven a votar algunas veces hasta por los hijos de los que los robaron en el pasado y así durante más de doscientos años. ¿qué explica el que millones de personas adultas caigan una y otra vez en el mismo engaño, de una forma tan ingenua y (permitanme repetirlo) tan chistosa y ridícula? Las razones, son múltiples, pero creo que hay una que no es tán evidente y que en mi concepto es la más clave de todas:<br>
 <br>
