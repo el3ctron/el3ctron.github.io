@@ -11,46 +11,12 @@ categories:
 - Miscellaneous
 ---
 
-*Un sueño que se cumple y que quiere ir mas allá.*
+*Un sueño que se cumple.*
 
 [![Agradecimiento.](/wp-content/uploads/por_tema/arte/seClaridad.jpg)](/Agradecimiento. "Un sueño que se cumple y que quiere ir mas allá.... [CLICK PARA ENTRAR AL ARTÍCULO]")
 
 <!-- more -->
 ---
-DEDICATORIA<br>
-<br>
-Este triunfo es dedicado a todos aquellos que creyeron en nosotros <br>
-pero sobre todo <br>
-a quienes no.<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
 A quienes contribuyeron en nuestra formación, <br>
 a los que nos dieron valor e inspiración,<br>
 a la visión trascendental de nuestros abuelos y padres, <br>
@@ -59,6 +25,40 @@ a la llama eterna del sueño de Jorge Eliecer Gaitán.<br>
 <br>
 <br>
 <br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+DEDICATORIA<br>
+<br>
+Este triunfo es dedicado a todos aquellos que creyeron en nosotros <br>
+pero sobre todo <br>
+a quienes no.<br>
 <br>
 <br>
 <br>
@@ -142,7 +142,7 @@ TODA suya.<br>
 <br>
 <br>
 <br>
-La disciplina es el único camino..<br>
+La disciplina es el único camino.<br>
 <br>
 <br>
 <br>
@@ -202,8 +202,4 @@ la llama de una vela que chisporrotea y se va.<br>
 <br>
 <br>
 GATE, GATE, PARAGATE, PARASAMGATE, BODHI SVAHA<br>
-
-<br><br><br>
-<br>
-<br>
 <iframe width="640" height="360" src="//www.youtube.com/embed/g65oWFMSoK0" frameborder="0" allowfullscreen></iframe>
