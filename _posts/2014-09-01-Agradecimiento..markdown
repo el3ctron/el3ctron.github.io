@@ -39,32 +39,11 @@ a la llama eterna del sueño de Jorge Eliecer Gaitán.<br>
 <br>
 <br>
 <br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
 DEDICATORIA<br>
 <br>
 Este triunfo es dedicado a todos aquellos que creyeron en nosotros <br>
 pero sobre todo <br>
 a quienes no.<br>
-<br>
-<br>
-<br>
-<br>
-<br>
-<br>
 <br>
 <br>
 <br>
@@ -202,4 +181,19 @@ la llama de una vela que chisporrotea y se va.<br>
 <br>
 <br>
 GATE, GATE, PARAGATE, PARASAMGATE, BODHI SVAHA<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
 <iframe width="640" height="360" src="//www.youtube.com/embed/g65oWFMSoK0" frameborder="0" allowfullscreen></iframe>
+6:02
