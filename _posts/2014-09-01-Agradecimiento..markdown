@@ -23,11 +23,69 @@ Este triunfo es dedicado a todos aquellos que creyeron en nosotros <br>
 pero sobre todo <br>
 a quienes no.<br>
 <br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
 A quienes contribuyeron en nuestra formación, <br>
 a los que nos dieron valor e inspiración,<br>
 a la visión trascendental de nuestros abuelos y padres, <br>
 al irrenunciable destino que le corresponde a este país,<br>
 a la llama eterna del sueño de Jorge Eliecer Gaitán.<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
 <br>
 <br>
 AGRADECIMIENTOS<br>
@@ -36,6 +94,31 @@ a nuestras familias que nos dieron su apoyo,<br>
 esta Victoria <br>
 es <br>
 TODA suya.<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
 <br>
 <br>
 <br>
@@ -76,6 +159,42 @@ La disciplina es el único camino..<br>
 <br>
 <br>
 <br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
 y así se ha de mirar el mundo temporal del ego, <br>
 como una estrella que cae, o Venus eclipsada por el alba,<br>
 una burbuja en una corriente, un sueño,<br>
@@ -85,3 +204,6 @@ la llama de una vela que chisporrotea y se va.<br>
 GATE, GATE, PARAGATE, PARASAMGATE, BODHI SVAHA<br>
 
 <br><br><br>
+<br>
+<br>
+<iframe width="640" height="360" src="//www.youtube.com/embed/g65oWFMSoK0" frameborder="0" allowfullscreen></iframe>
