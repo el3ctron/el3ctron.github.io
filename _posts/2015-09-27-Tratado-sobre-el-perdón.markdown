@@ -288,5 +288,6 @@ como el corte que hace de un cuerpo dos<br>
 como una sentencia de muerte adorando la vida<br>
 como el avión que por tercera vez despega sin espera alguna ni un porqué<br>
 pero amar también es saber<br>
+<br>
 partir.<br>
-<br><br><br>
+<br>
