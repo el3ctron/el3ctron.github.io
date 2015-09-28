@@ -17,7 +17,7 @@ categories:
 
 <!-- more -->
 ---
-Yo hago que mi esperanza tome esa forma física<br>
+Hago que mi esperanza tome esa forma física<br>
 imagen identica a la del cuerpo de la amada<br>
 la llevo hasta el mas majestuoso de los templos de toda Heliópolis<br>
 aquel enclavado en una altísima y rocosa peña costera<br>
