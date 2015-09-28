@@ -275,6 +275,7 @@ momento<br>
 de la fuerza más noble posible<br>
 de una verdadera paz<br>
 de cerrar el capítulo e ir más en grande,<br>
+de empuñar mi vida y mis sueños<br>
 reciba mi más generoso silencio,<br>
 por siempre<br>
 las canciones perturbarán el aire de forma distinta<br>
@@ -288,5 +289,4 @@ como una sentencia de muerte adorando la vida<br>
 como el avión que por tercera vez despega sin espera alguna ni un porqué<br>
 pero amar también es saber<br>
 partir.<br>
-
 <br><br><br>
