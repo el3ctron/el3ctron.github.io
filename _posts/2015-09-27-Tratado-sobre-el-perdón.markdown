@@ -272,6 +272,7 @@ una gigantezca ola alcanzará este lugar para lastrar tus restos del templo hast
 es<br>
 el<br>
 momento<br>
+para resistir<br>
 de la fuerza más noble posible<br>
 de una verdadera paz<br>
 de cerrar el capítulo e ir más en grande,<br>
@@ -290,4 +291,6 @@ como el avión que por tercera vez despega sin espera alguna ni un porqué<br>
 pero amar también es saber<br>
 <br>
 partir.<br>
+<br>
+<br>
 <br>
