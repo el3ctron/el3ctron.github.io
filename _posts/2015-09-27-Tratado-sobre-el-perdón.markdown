@@ -32,7 +32,7 @@ los plenos 360 grados del horizonte en su plena y perfecta circunferencia,<br>
 panóptico de Utopía..<br>
 atardece<br>
 contemplo<br>
--- "con unos días de anterioridad,
+ - "con unos días de anterioridad, (le comenté a mi esperanza)
 a sesión extraordinaria fuí convocado,<br>
 en los campos de las Acacías Argentinas;<br>
 mi Emperador se presentó<br>
@@ -46,13 +46,13 @@ pero que yo entendía como mi aliada y mi inspiración<br>
 intenté desoir<br>
 por que esas verdades presentadas tan crudas duelen<br>
 y me desafió:<br>
--- "si lo que lo que yace en ese pecho es una fuerza INVENCIBLE"<br>
--- "la casta misma de la resiliencia!"<br>
--- "no son solo unas frases acuñadas sobre algún texto pseudopoético,<br>
+ - "si lo que lo que yace en ese pecho es una fuerza INVENCIBLE"<br>
+ - "la casta misma de la resiliencia!" (respondí al Jefe Máximo)<br>
+ - "no son solo unas frases acuñadas sobre algún texto pseudopoético,<br>
 entenderá ahora<br>
 que<br>
 esto corre en tiempo presente puro y contínuo."<br>
-(Un Sacrificio tendría que efectuarse)<br>
+<br>
 <br>
 contemplo
 y espero,<br>
