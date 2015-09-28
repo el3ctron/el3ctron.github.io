@@ -269,6 +269,7 @@ nada<br>
 <br>
 <br>
 una gigantezca ola alcanzará este lugar para lastrar tus restos del templo hasta el naufragio<br>
+ahora amanece<br>
 es<br>
 el<br>
 momento<br>
