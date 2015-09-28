@@ -32,28 +32,28 @@ los plenos 360 grados del horizonte en su plena y perfecta circunferencia,<br>
 panóptico de Utopía..<br>
 atardece<br>
 contemplo<br>
--"con unos días de anterioridad,
+-- "con unos días de anterioridad,
 a sesión extraordinaria fuí convocado,<br>
-a los campos de las Acacías Argentinas;
-mi Emperador se presentó
+en los campos de las Acacías Argentinas;<br>
+mi Emperador se presentó<br>
 empuñó su espada<br>
 y con un ojo cerrado<br>
-la alineó al frente de la naríz,
-apuntando
-señaló
+la alineó al frente de la naríz,<br>
+apuntando<br>
+señaló<br>
 me reveló claramente algo que siempre jugó como mi enemigo<br>
 pero que yo entendía como mi aliada y mi inspiración<br>
 intenté desoir<br>
 por que esas verdades presentadas tan crudas duelen<br>
 y me desafió:<br>
--"si lo que lo que yace en ese pecho es una fuerza INVENCIBLE"<br>
--"la casta misma de la resiliencia!"<br>
--"no son solo unas frases acuñadas sobre algún texto pseudopoético,<br>
+-- "si lo que lo que yace en ese pecho es una fuerza INVENCIBLE"<br>
+-- "la casta misma de la resiliencia!"<br>
+-- "no son solo unas frases acuñadas sobre algún texto pseudopoético,<br>
 entenderá ahora<br>
 que<br>
-esto corre en tiempo presente puro y contínuo"<br>
-(Un Sacrificio tendría que efectuarse).<br>
-
+esto corre en tiempo presente puro y contínuo."<br>
+(Un Sacrificio tendría que efectuarse)<br>
+<br>
 contemplo
 y espero,<br>
 en los casos más tortuosos al ángel del génesis que detuviera la mano victimaria y le salvara la vida a Isaac de manos de su padre,<br>
@@ -93,7 +93,7 @@ y desde abajo una diagonal de alta precisión inflinge el corte letal sobre alg�
 ya que esa también es la naturaleza de un sable de oro<br>
 la de crear eclipses<br>
 cataclismos<br>
-apocalípsis<br>
+apocalipsis<br>
 es<br>
 el momento de rodar los últimos fotogramas de la película de la vida<br>
 de esa vida que dejó de serlo<br>
@@ -114,7 +114,7 @@ la grieta de roca enorme, se hace rajadura de montaña y luego abismal cañón d
 aunque se alcance a escurrir el vacío del que quiere detener y devolver el tiempo<br>
 el segundo es de imposible alcance<br>
 tiquete sin fecha de regreso,<br>
-hasta el otro mundo<br>
+hasta el otro mundo,<br>
 proscripta y deportada<br>
 -"díganme, ¿quien de los mortales ó miembros del sagrado concejo supremo tiene el poder de devolver el tiempo?"<br>
 la pregunta del millón en el Olimpo<br>
@@ -137,11 +137,7 @@ por que la amaba<br>
 más inclusive que a todas mis causas nobles, perdidas y solitarias<br>
 a las que tantas veces puse a un lado para ir detrás de su mirar<br>
 pero sepa<br>
-que mi paz y mi fuerza van por encima de lo que sea<br>
-nada fácil<br>
-esto<br>
-va en contra de mi latir<br>
-he de entender que<br>
+que mi paz y mi fuerza van por encima de todo<br>
 hay pérdidas que son un auténtico desafío para alma pero que son una genuina victoria para un hombre al lograr desapegarlas<br>
 anticipé en las Acacías que la luz de esa mirada se desvanecería<br>
 como ahora ocurre,<br>
@@ -155,7 +151,7 @@ de esos que en otrora por preciosidad causaran sismos de tragedia<br>
 no hay marcha atrás<br>
 mi Emperador y sus batallones sagrados aún están de mi lado<br>
 podré defraudar una ilusión mía, pero no a ellos<br>
-ilusión a la larga es solo eso<br>
+una ilusión a la larga es solo eso<br>
 ¿qué es el poner a un lado el recordar con cariño a quien no tiene inconveniente en hacerte daño?<br>
 ¿que es eso sino una inmensísima victoria?<br>
 en los últimos tiempos tuve la oportunidad de desplegar innumerables batallas, diarias, muchas<br>
@@ -169,7 +165,7 @@ por que el armamento que despliega mi alma bajo el influjo del enamoramiento lle
 vencerme a mí mismo<br>
 replegar los ejércitos del corazón es también un arte.<br>
 entonces un fénix me ofrece una pirueta majestuosa en el aire<br>
-no es un error<br>
+confirmo que no es un error<br>
 entre la congoja por mi perdida<br>
 exijo potestad total sobre mi voluntad<br>
 se me concede,<br>
@@ -184,8 +180,6 @@ He aquí mi inspiración intacta!<br>
 He aquí mi inspiración invicta!<br>
 regreso a terminar el caballo galopante al óleo<br>
 a perfeccionar unos acordes<br>
-por mi familia, un país, el sueño de la paz<br>
-a la fruición de unas letras que no importa lo talentosas pero lo honestas, antes de que se borren<br>
 por el rugir de una Libertad que casi dejo abandonada en Colombia ó en el peor de los casos mal vendida por satisfacer un afán que nunca existió<br>
 FUERA DE HELIÓPOLIS!!!<br>
 entonces<br>
