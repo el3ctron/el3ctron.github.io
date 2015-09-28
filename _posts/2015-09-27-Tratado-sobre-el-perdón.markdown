@@ -120,7 +120,7 @@ la pregunta del millón en el Olimpo<br>
 SIN RESPUESTA<br>
 ni los dioses la conocen<br>
 y aunque la supieran<br>
-sería esta la ocasión para demostrar la fuerza suficiente para sobreponerme al caprichoso deseo y tampoco podría buscarla<br>
+sería esta la ocasión para demostrar la fuerza suficiente para sobreponerme al humano y caprichoso deseo, tampoco podría buscarla<br>
 sería más fácil aceptar el desafío de continuar sufriendo que el de acabar la pena de un tajo<br>
 pero yo no soy ningún cobarde<br>
 hice hasta lo imposible para no perderla<br>
@@ -268,9 +268,7 @@ nada<br>
 <br>
 <br>
 <br>
-<br>
-sería tal vez más fácil emprender el camino de la venganza<br>
-pero<br>
+una gigantezca ola alcanzará este lugar para lastrar tus restos del templo hasta el naufragio<br>
 es<br>
 el<br>
 momento<br>
