@@ -141,13 +141,21 @@ como ahora ocurre,<br>
 se extingue, aún<br>
 no con la velocidad de una vela soplada<br>
 sino más bien con la del avión que parte y se hace un punto lejano llevando adentro a alguien que en algún rincón del alma no quiere ir<br>
-ó con la prisa con la que se diluye un gigantezco y pesado arrepentimiento<br>
+ó con la prisa ó mas bien la lentitud con la que se diluye un gigantezco y pesado arrepentimiento<br>
 por que hasta eso termina atravezándose<br>
 pero aunque sean estos los últimos instantes de esos ojos con vida<br>
 de esos que en otrora por preciosidad causaran sismos de tragedia<br>
 no hay marcha atrás<br>
-mi Emperador y sus batallones sagrados aún están de mi lado<br>
-podré defraudar una ilusión mía, pero no a ellos<br>
+en este mismo lugar dí nacimiento a sublimes esperanzas<br>
+los maestros advertieron que al adquirir el poder de crearlas<br>
+debería por obligación también aprender el ritual para su aniquilación<br>
+ya que hay esperanzas por las que vale la pena dar la vida por que la engrandecen<br>
+y otras ilusorias que por la fuerza intentan arrebatartela para reducirla<br>
+la verdadera dificultad estriba en saber diferenciar las primeras de las segundas<br>
+pero aún más dificil, encontrar el momento y la fuerza para el sacrificio<br>
+me prometieron que<br>
+mi Emperador y sus batallones sagrados de claridad estarían de mi lado<br>
+y podré defraudar una ilusión mía, pero no a ellos<br>
 una ilusión a la larga es solo eso<br>
 ¿qué es el poner a un lado el recordar con cariño a quien no tiene inconveniente en hacerte daño?<br>
 ¿que es eso sino una inmensísima victoria?<br>
@@ -156,20 +164,23 @@ forzado las traduje<br>
 como siempre,<br>
 a desafío<br>
 pero esta vez encontré que mi valor dependía no de la victoria en ellas sino de mi capacidad para seleccionarlas,<br>
-era cierto.<br>
+era cierto, tan cierto, una tautología<br>
+no podía ganarlas todas<br>
 la más grande hazaña de un espíritu humano muchas veces consiste en una silenciosíma retirada<br>
 por que el armamento que despliega mi alma bajo el influjo del enamoramiento lleva muchas veces una fuerza que excede la de mis propias manos<br>
-vencerme a mí mismo<br>
-replegar los ejércitos del corazón es también un arte.<br>
+y existirían ocasiones en que sería tan difícil vencerme a mí mismo<br>
+sin embargo, replegar los ejércitos del corazón es también un arte<br>
 entonces un fénix me ofrece una pirueta majestuosa en el aire<br>
-confirmo que no es un error<br>
+confirmo que no es un error!<br>
 entre la congoja por mi perdida<br>
 exijo potestad total sobre mi voluntad<br>
 se me concede,<br>
 soberanía absoluta sobre mi poder aunque estuviese mermado<br>
 conferida<br>
-fortaleza en el alma, por favor<br>
+fortaleza en el alma y en mi cuerpo por favor<br>
+triplicada<br>
 que se detone el carnaval, que sea la fiesta<br>
+sea la liberación<br>
 Dueño y Señor de todos los territorios pisados por el cardionauta<br>
 dejo firmada en Brasil,<br>
 la declaración de independencia de mi corazón.<br>
