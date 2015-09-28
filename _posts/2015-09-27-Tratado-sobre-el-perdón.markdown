@@ -24,7 +24,9 @@ aquel enclavado en una altísima y rocosa peña costera<br>
 y en el que por su monumentalidad arquitectónica, su fauna, y por sentido común<br>
 solo podrían celebrarse los más solemnes actos,<br>
 por ejemplo,<br>
-el Fénix es un ave endémica de estos parajes<br>
+el Fénix es un ave endémica de estos parajes,<br>
+en las plantas que lograron vencer las agrestes condiciones se forjaron sabios y espontáneos bonsais<br>
+los más heróicos floridos y otros hasta con fruto<br>
 ahí<br>
 la belleza del paisaje<br>
 poderosas olas en lontananza que se crispan y caen como en camara lenta<br>
