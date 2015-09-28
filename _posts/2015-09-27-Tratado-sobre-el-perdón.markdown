@@ -52,10 +52,7 @@ y me desafió:<br>
 entenderá ahora<br>
 que<br>
 esto corre en tiempo presente puro y contínuo."<br>
-<br>
-<br>
-contemplo
-y espero,<br>
+contemplo el horizonte y espero,<br>
 en los casos más tortuosos al ángel del génesis que detuviera la mano victimaria y le salvara la vida a Isaac de manos de su padre,<br>
 otro descenlace,<br>
 pero no llega,<br>
@@ -125,7 +122,7 @@ sería esta la ocasión para demostrar la fuerza suficiente para sobreponerme al
 sería más fácil aceptar el desafío de continuar sufriendo que el de acabar la pena de un tajo<br>
 pero yo no soy ningún cobarde<br>
 hice hasta lo imposible para no perderla<br>
-pero fuí desafiado, conducido hasta este paraje<br>
+fuí desafiado y conducido hasta este paraje<br>
 nada fácil<br>
 esto<br>
 va en contra de la naturaleza de mi propio latir,<br>
