@@ -49,12 +49,12 @@ intenté desoir<br>
 por que esas verdades presentadas tan crudas duelen<br>
 y me desafió:<br>
  - "si lo que lo que yace en ese pecho es una fuerza INVENCIBLE"<br>
- - "la casta misma de la resiliencia!", respondí al Jefe Máximo, mientras el desenvainaba para ofrecerme la mejor de sus armas<br>
+ - "la casta misma de la resiliencia!", respondí al Jefe Máximo mientras el desenvainaba para ofrecerme la mejor de sus armas y me replicó:<br>
  - "no son solo unas frases acuñadas sobre algún texto pseudopoético,<br>
 entenderá ahora<br>
 que<br>
 esto corre en tiempo presente puro y contínuo."<br>
-..contemplo el horizonte y espero,<br>
+contemplo el horizonte y espero,<br>
 en los casos más tortuosos al ángel del génesis que detuviera la mano victimaria y le salvara la vida a Isaac de manos de su padre,<br>
 otro descenlace,<br>
 pero no llega,<br>
