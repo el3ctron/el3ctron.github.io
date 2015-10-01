@@ -26,7 +26,7 @@ solo podrían celebrarse los más solemnes actos,<br>
 por ejemplo,<br>
 el Fénix es un ave endémica de estos parajes,<br>
 en las plantas que lograron vencer las agrestes condiciones se forjaron sabios y espontáneos bonsais<br>
-los más heróicos floridos y otros hasta con fruto<br>
+los más heróicos, floridos y otros, hasta con fruto<br>
 ahí<br>
 la belleza del paisaje<br>
 poderosas olas en lontananza que se crispan y caen como en camara lenta<br>
@@ -49,12 +49,12 @@ intenté desoir<br>
 por que esas verdades presentadas tan crudas duelen<br>
 y me desafió:<br>
  - "si lo que lo que yace en ese pecho es una fuerza INVENCIBLE"<br>
- - "la casta misma de la resiliencia!" (respondí al Jefe Máximo)<br>
+ - "la casta misma de la resiliencia!", respondí al Jefe Máximo, mientras el desenvainaba para ofrecerme la mejor de sus armas<br>
  - "no son solo unas frases acuñadas sobre algún texto pseudopoético,<br>
 entenderá ahora<br>
 que<br>
 esto corre en tiempo presente puro y contínuo."<br>
-contemplo el horizonte y espero,<br>
+..contemplo el horizonte y espero,<br>
 en los casos más tortuosos al ángel del génesis que detuviera la mano victimaria y le salvara la vida a Isaac de manos de su padre,<br>
 otro descenlace,<br>
 pero no llega,<br>
@@ -115,7 +115,7 @@ el segundo es de imposible alcance<br>
 tiquete sin fecha de regreso,<br>
 hasta el otro mundo,<br>
 proscripta y deportada<br>
--"díganme, ¿quien de los mortales ó miembros del sagrado concejo supremo tiene el poder de devolver el tiempo?"<br>
+díganme, ¿quien de los mortales ó miembros del sagrado concejo supremo tiene el poder de devolver el tiempo?<br>
 la pregunta del millón en el Olimpo<br>
 SIN RESPUESTA<br>
 ni los dioses la conocen<br>
@@ -152,9 +152,9 @@ en este mismo lugar dí nacimiento a sublimes esperanzas<br>
 los maestros advertieron que al adquirir el poder de crearlas<br>
 debería por obligación también aprender el ritual para su aniquilación<br>
 ya que hay esperanzas por las que vale la pena dar la vida por que la engrandecen<br>
-y otras ilusorias que por la fuerza intentan arrebatartela para reducirla<br>
+y otras ilusorias que por la fuerza intentan arrebatártela para reducirla<br>
 la verdadera dificultad estriba en saber diferenciar las primeras de las segundas<br>
-pero aún más dificil, encontrar el momento y la fuerza para el sacrificio<br>
+pero aún más difícil, encontrar el momento y la fuerza para el sacrificio,<br>
 me prometieron que<br>
 mi Emperador y sus batallones sagrados de claridad estarían de mi lado<br>
 y podré defraudar una ilusión mía, pero no a ellos<br>
@@ -165,13 +165,18 @@ en los últimos tiempos tuve la oportunidad de desplegar innumerables batallas, 
 forzado las traduje<br>
 como siempre,<br>
 a desafío<br>
+quise ganarlas todas<br>
 pero esta vez encontré que mi valor dependía no de la victoria en ellas sino de mi capacidad para seleccionarlas,<br>
-era cierto, tan cierto, una tautología<br>
+era cierto, tan cierto... una tautología!<br>
 no podía ganarlas todas<br>
-la más grande hazaña de un espíritu humano muchas veces consiste en una silenciosíma retirada<br>
-por que el armamento que despliega mi alma bajo el influjo del enamoramiento lleva muchas veces una fuerza que excede la de mis propias manos<br>
-y existirían ocasiones en que sería tan difícil vencerme a mí mismo<br>
-sin embargo, replegar los ejércitos del corazón es también un arte<br>
+la más grande hazaña de un espíritu humano, más grande ha veces que el triunfo mismo<br>
+muchas veces consiste en una silenciosísima retirada<br>
+por que el armamento que despliega mi alma bajo el influjo del enamoramiento lleva muchas veces<br>
+una fuerza que excede la de mis propias manos<br>
+por lo tanto existirían ocasiones en que sería casi imposible<br>
+vencerme a mí mismo,<br>
+así el provocar la derrota podría ser más difícil que el conseguir cualquier otra cosa<br>
+sin embargo, comprendo que replegar los ejércitos del corazón es también un arte<br>
 entonces un fénix me ofrece una pirueta majestuosa en el aire<br>
 confirmo que no es un error!<br>
 entre la congoja por mi perdida<br>
@@ -180,12 +185,13 @@ se me concede,<br>
 soberanía absoluta sobre mi poder aunque estuviese mermado<br>
 conferida<br>
 fortaleza en el alma y en mi cuerpo por favor<br>
-triplicada<br>
-que se detone el carnaval, que sea la fiesta<br>
-sea la liberación<br>
+TRIPLICADA<br>
+que se detone el carnaval, que sea la fiesta!<br>
+sea la liberación!<br>
 Dueño y Señor de todos los territorios pisados por el cardionauta<br>
 dejo firmada en Brasil,<br>
 la declaración de independencia de mi corazón.<br>
+mi facultad no depende de nadie, excepto de mi claridad<br>
 He aquí mi inspiración intacta!<br>
 He aquí mi inspiración invicta!<br>
 regreso a terminar el caballo galopante al óleo<br>
@@ -268,7 +274,7 @@ nada<br>
 <br>
 <br>
 <br>
-una gigantezca ola alcanzará este lugar para lastrar tus restos del templo hasta el naufragio<br>
+una gigantezca ola alcanzará este lugar para lastrar los restos del templo hasta el naufragio<br>
 ahora amanece<br>
 es<br>
 el<br>
