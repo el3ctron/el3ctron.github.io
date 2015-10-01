@@ -275,11 +275,11 @@ nada<br>
 <br>
 <br>
 una gigantezca ola alcanzará este lugar para lastrar los restos del templo hasta el naufragio<br>
-ahora amanece<br>
+amanece<br>
+ahora<br>
 es<br>
 el<br>
 momento<br>
-para resistir<br>
 de la fuerza más noble posible<br>
 de una verdadera paz<br>
 de cerrar el capítulo e ir más en grande,<br>
