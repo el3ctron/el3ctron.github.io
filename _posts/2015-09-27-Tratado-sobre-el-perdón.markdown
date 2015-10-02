@@ -109,7 +109,7 @@ POR QUE EN ESA VENA ABIERTA SE ABRE EL PORTAL POR DONDE LA DESTIERRO DE PLATONIA
 con las manos temblando<br>
 envaino<br>
 ya es tarde<br>
-no es esta una cortadita cobarde<br>
+no es esta una cortadita del que busca la cobarde amenaza ó chantajista coacción<br>
 la grieta de roca enorme, se hace rajadura de montaña y luego abismal cañón de profundidad insondable<br>
 y aunque se alcance a escurrir el vacío del que quiere detener y devolver el tiempo<br>
 el segundo es de imposible alcance<br>
@@ -172,10 +172,12 @@ era cierto, tan cierto... una tautología!<br>
 no podía ganarlas todas<br>
 la más grande hazaña de un espíritu humano, más grande ha veces que el triunfo mismo<br>
 muchas veces consiste en una silenciosísima retirada<br>
-por que el armamento que despliega mi alma bajo el influjo del enamoramiento lleva muchas veces<br>
+por que el armamento que despliega mi alma bajo el influjo de un apasionamiento<br>
+lleva muchas veces<br>
 una fuerza que excede la de mis propias manos<br>
 por lo tanto existirían ocasiones en que sería casi imposible<br>
-vencerme a mí mismo, el provocar la derrota podría ser más difícil que el conseguir cualquier otra cosa<br>
+vencerme a mí mismo,
+podría ser más difícil el provocar la derrota que el conseguir cualquier otro resultado<br>
 sin embargo, comprendo que replegar los ejércitos del corazón es también un arte<br>
 entonces un fénix me ofrece una pirueta majestuosa en el aire<br>
 confirmo que no es un error!<br>
@@ -275,7 +277,7 @@ nada<br>
 <br>
 <br>
 el horizonte se deforma en una curva ascendente,
-una gigantesca ola alcanzará este lugar para lastrar los restos del templo hasta el naufragio<br>
+una gigantesca ola alcanzará este lugar para lastrar tus restos del templo hasta el naufragio<br>
 resistir,<br>
 amanece<br>
 ahora<br>
@@ -293,13 +295,13 @@ y duele,<br>
 sería por orgullo si dijera que no<br>
 ó aparentara otra cosa<br>
 pero duele,<br>
-mucho<br>
 como el corte que hace de un cuerpo dos<br>
 como una sentencia de muerte adorando la vida<br>
-como el avión que por tercera vez despega sin espera alguna ni un porqué<br>
+como el avión que despega sin espera alguna ni un porqué<br>
 pero amar también es saber<br>
 <br>
 partir.<br>
+<br>
 <br>
 <br>
 <br>
