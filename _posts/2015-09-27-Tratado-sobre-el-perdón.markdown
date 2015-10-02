@@ -76,7 +76,8 @@ un relámpago distante<br>
 el microsegundo fortuito en el que coincidieron<br>
 todas las anteriores..<br>
 entonces oscurece<br>
-en préstamo la espada misma que el Emperador en persona me entregara, con el Honor que eso implica<br>
+en préstamo la espada misma que el Emperador en persona me entregara,<br>
+con el Honor que eso implica<br>
 soy una decisión muy bien armada<br>
 no hubo redoble de tambores<br>
 no hay más espera<br>
@@ -108,8 +109,9 @@ POR QUE EN ESA VENA ABIERTA SE ABRE EL PORTAL POR DONDE LA DESTIERRO DE PLATONIA
 con las manos temblando<br>
 envaino<br>
 ya es tarde<br>
+no es esta una cortadita cobarde<br>
 la grieta de roca enorme, se hace rajadura de montaña y luego abismal cañón de profundidad insondable<br>
-aunque se alcance a escurrir el vacío del que quiere detener y devolver el tiempo<br>
+y aunque se alcance a escurrir el vacío del que quiere detener y devolver el tiempo<br>
 el segundo es de imposible alcance<br>
 tiquete sin fecha de regreso,<br>
 hasta el otro mundo,<br>
@@ -146,9 +148,9 @@ sino más bien con la del avión que parte y se hace un punto lejano llevando ad
 por que hasta eso termina atravesándose<br>
 pero aunque sean estos los últimos instantes de esos ojos con vida<br>
 de esos que en otrora por preciosidad causaran sismos de tragedia<br>
-no hay marcha atrás<br>
+no hay marcha atrás,<br>
 en este mismo lugar dí nacimiento a sublimes esperanzas<br>
-los maestros advirtieron que al adquirir el poder de crearlas<br>
+y los maestros advirtieron que al adquirir el poder de crearlas<br>
 debería por obligación también aprender el ritual para su aniquilación<br>
 ya que hay esperanzas por las que vale la pena dar la vida por que la engrandecen<br>
 y otras ilusorias que por la fuerza intentan arrebatártela para reducirla<br>
@@ -173,8 +175,7 @@ muchas veces consiste en una silenciosísima retirada<br>
 por que el armamento que despliega mi alma bajo el influjo del enamoramiento lleva muchas veces<br>
 una fuerza que excede la de mis propias manos<br>
 por lo tanto existirían ocasiones en que sería casi imposible<br>
-vencerme a mí mismo,<br>
-así el provocar la derrota podría ser más difícil que el conseguir cualquier otra cosa<br>
+vencerme a mí mismo, el provocar la derrota podría ser más difícil que el conseguir cualquier otra cosa<br>
 sin embargo, comprendo que replegar los ejércitos del corazón es también un arte<br>
 entonces un fénix me ofrece una pirueta majestuosa en el aire<br>
 confirmo que no es un error!<br>
