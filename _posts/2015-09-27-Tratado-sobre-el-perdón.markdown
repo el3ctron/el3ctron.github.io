@@ -18,7 +18,7 @@ categories:
 <!-- more -->
 ---
 Hago que mi esperanza tome esa forma física<br>
-imagen identica a la del cuerpo de la amada<br>
+imagen idéntica a la del cuerpo de la amada<br>
 la llevo hasta el mas majestuoso de los templos de toda Heliópolis<br>
 aquel enclavado en una altísima y rocosa peña costera<br>
 y en el que por su monumentalidad arquitectónica, su fauna, y por sentido común<br>
@@ -26,7 +26,7 @@ solo podrían celebrarse los más solemnes actos,<br>
 por ejemplo,<br>
 el Fénix es un ave endémica de estos parajes,<br>
 en las plantas que lograron vencer las agrestes condiciones se forjaron sabios y espontáneos bonsais<br>
-los más heróicos, floridos y otros, hasta con fruto<br>
+los más heroicos, floridos y otros, hasta con fruto<br>
 ahí<br>
 la belleza del paisaje<br>
 poderosas olas en lontananza que se crispan y caen como en camara lenta<br>
@@ -35,34 +35,33 @@ panóptico de Utopía..<br>
 atardece<br>
 contemplo<br>
  - "con unos días de anterioridad, (le comenté a mi esperanza)
-a sesión extraordinaria fuí convocado,<br>
+a sesión extraordinaria fui convocado,<br>
 en los campos de las Acacías Argentinas;<br>
 mi Emperador se presentó<br>
 empuñó su espada<br>
 y con un ojo cerrado<br>
-la alineó al frente de la naríz,<br>
+la alineó al frente de la nariz,<br>
 apuntando<br>
 señaló<br>
 me reveló claramente algo que siempre jugó como mi enemigo<br>
 pero que yo entendía como mi aliada y mi inspiración<br>
-intenté desoir<br>
-por que esas verdades presentadas tan crudas duelen<br>
+intenté desoír por que esas verdades presentadas tan crudas duelen<br>
 y me desafió:<br>
  - "si lo que lo que yace en ese pecho es una fuerza INVENCIBLE"<br>
- - "la casta misma de la resiliencia!", respondí al Jefe Máximo mientras el desenvainaba para ofrecerme la mejor de sus armas y me replicó:<br>
- - "no son solo unas frases acuñadas sobre algún texto pseudopoético,<br>
+ - "la casta misma de la resiliencia!", respondí al Jefe Máximo mientras se acercaba para ofrecerme la mejor de sus armas, me replicó:<br>
+ - "esas no son solo unas frases acuñadas sobre algún texto pseudopoético,<br>
 entenderá ahora<br>
 que<br>
-esto corre en tiempo presente puro y contínuo."<br>
+esto corre en tiempo presente puro y continuo."<br>
 contemplo el horizonte y espero,<br>
 en los casos más tortuosos al ángel del génesis que detuviera la mano victimaria y le salvara la vida a Isaac de manos de su padre,<br>
-otro descenlace,<br>
+otro desenlace,<br>
 pero no llega,<br>
 entonces<br>
 sé que es el momento<br>
 lo recuerdo<br>
 traje hasta ese altar a mi bellísima esperanza por una razón<br>
-la sentencia fué dada con anterioridad<br>
+la sentencia fue dada con anterioridad<br>
 no hay espera<br>
 entre una pulsación cada vez más acelerada<br>
 espero<br>
@@ -71,7 +70,7 @@ una señal<br>
 (que pareciera del mas allá, pero que es simple)<br>
 manifestada ha veces por el paso repentino de alguna ráfaga de viento<br>
 por una nube que cubrió el sol<br>
-la espontánea caida de la hoja de un árbol,<br>
+la espontánea caída de la hoja de un árbol,<br>
 un relámpago distante<br>
 ó<br>
 el microsegundo fortuito en el que coincidieron<br>
@@ -124,7 +123,7 @@ sería esta la ocasión para demostrar la fuerza suficiente para sobreponerme al
 sería más fácil aceptar el desafío de continuar sufriendo que el de acabar la pena de un tajo<br>
 pero yo no soy ningún cobarde<br>
 hice hasta lo imposible para no perderla<br>
-fuí desafiado y conducido hasta este paraje<br>
+fui desafiado y conducido hasta este paraje<br>
 nada fácil<br>
 esto<br>
 va en contra de la naturaleza de mi propio latir,<br>
@@ -143,13 +142,13 @@ como ahora ocurre,<br>
 se extingue, aún<br>
 no con la velocidad de una vela soplada<br>
 sino más bien con la del avión que parte y se hace un punto lejano llevando adentro a alguien que en algún rincón del alma no quiere ir<br>
-ó con la prisa ó mas bien la lentitud con la que se diluye un gigantezco y pesado arrepentimiento<br>
-por que hasta eso termina atravezándose<br>
+ó con la prisa ó mas bien la lentitud con la que se diluye un gigantesco y pesado arrepentimiento<br>
+por que hasta eso termina atravesándose<br>
 pero aunque sean estos los últimos instantes de esos ojos con vida<br>
 de esos que en otrora por preciosidad causaran sismos de tragedia<br>
 no hay marcha atrás<br>
 en este mismo lugar dí nacimiento a sublimes esperanzas<br>
-los maestros advertieron que al adquirir el poder de crearlas<br>
+los maestros advirtieron que al adquirir el poder de crearlas<br>
 debería por obligación también aprender el ritual para su aniquilación<br>
 ya que hay esperanzas por las que vale la pena dar la vida por que la engrandecen<br>
 y otras ilusorias que por la fuerza intentan arrebatártela para reducirla<br>
@@ -274,7 +273,9 @@ nada<br>
 <br>
 <br>
 <br>
-una gigantezca ola alcanzará este lugar para lastrar los restos del templo hasta el naufragio<br>
+el horizonte se deforma en una curva ascendente,
+una gigantesca ola alcanzará este lugar para lastrar los restos del templo hasta el naufragio<br>
+resistir,<br>
 amanece<br>
 ahora<br>
 es<br>
