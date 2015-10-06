@@ -22,14 +22,14 @@ imagen idéntica a la del cuerpo de la amada<br>
 la llevo hasta el mas majestuoso de los templos de toda Heliópolis<br>
 aquel enclavado en una altísima y rocosa peña costera<br>
 y en el que por su monumentalidad arquitectónica, su fauna, y por sentido común<br>
-solo podrían celebrarse los más solemnes actos,<br>
+sólo podrían celebrarse los más solemnes actos,<br>
 por ejemplo,<br>
 el Fénix es un ave endémica de estos parajes,<br>
 en las plantas que lograron vencer las agrestes condiciones se forjaron sabios y espontáneos bonsais<br>
 los más heroicos, floridos y otros, hasta con fruto<br>
 ahí<br>
 la belleza del paisaje<br>
-poderosas olas en lontananza que se crispan y caen como en camara lenta<br>
+poderosas olas en lontananza que se crispan y caen como en cámara lenta<br>
 los plenos 360 grados del horizonte en su plena y perfecta circunferencia,<br>
 panóptico de Utopía..<br>
 atardece<br>
@@ -68,7 +68,7 @@ espero<br>
 siempre<br>
 una señal<br>
 (que pareciera del mas allá, pero que es simple)<br>
-manifestada ha veces por el paso repentino de alguna ráfaga de viento<br>
+manifestada a veces por el paso repentino de alguna ráfaga de viento<br>
 por una nube que cubrió el sol<br>
 la espontánea caída de la hoja de un árbol,<br>
 un relámpago distante<br>
@@ -145,7 +145,7 @@ se extingue, aún<br>
 no con la velocidad de una vela soplada<br>
 sino más bien con la del avión que parte y se hace un punto lejano llevando adentro a alguien que en algún rincón del alma no quiere ir<br>
 ó con la prisa ó mas bien la lentitud con la que se diluye un gigantesco y pesado arrepentimiento<br>
-por que hasta eso termina atravesándose<br>
+porque hasta eso termina atravesándose<br>
 pero aunque sean estos los últimos instantes de esos ojos con vida<br>
 de esos que en otrora por preciosidad causaran sismos de tragedia<br>
 no hay marcha atrás,<br>
@@ -170,7 +170,7 @@ quise ganarlas todas<br>
 pero esta vez encontré que mi valor dependía no de la victoria en ellas sino de mi capacidad para seleccionarlas,<br>
 era cierto, tan cierto... una tautología!<br>
 no podía ganarlas todas<br>
-la más grande hazaña de un espíritu humano, más grande ha veces que el triunfo mismo<br>
+la más grande hazaña de un espíritu humano, más grande a veces que el triunfo mismo<br>
 muchas veces consiste en una silenciosísima retirada<br>
 por que el armamento que despliega mi alma bajo el influjo de un apasionamiento<br>
 lleva muchas veces<br>
@@ -181,7 +181,7 @@ podría ser más difícil el provocar la derrota que el conseguir cualquier otro
 sin embargo, comprendo que replegar los ejércitos del corazón es también un arte<br>
 entonces un fénix me ofrece una pirueta majestuosa en el aire<br>
 confirmo que no es un error!<br>
-entre la congoja por mi perdida<br>
+entre la congoja por mi pérdida<br>
 exijo potestad total sobre mi voluntad<br>
 se me concede,<br>
 soberanía absoluta sobre mi poder aunque estuviese mermado<br>
@@ -207,7 +207,7 @@ se quiebran las promesas ad aeternum<br>
 por que para eso sirve también este sable dorado de tan radical y agudo filo<br>
 que en otro entonces fuese ofrecido incondicionalmente para protegerla<br>
 y ahora entenderá<br>
-que existen cosas más fuertes que el mas puro diamante<br>
+que existen cosas más fuertes que el más puro diamante<br>
 de la saudade<br>
 las lunas llenas en Rio<br>
 se volverán antena fortuita de mensajes telepáticos dirigidos a cualquier otro lugar<br>
