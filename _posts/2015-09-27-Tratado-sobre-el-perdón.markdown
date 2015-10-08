@@ -84,6 +84,7 @@ no hay más espera<br>
 a una centella remota<br>
 le sigue un trueno<br>
 la voz más profunda de los dioses<br>
+(es la señal)<br>
 entonces tampoco espera<br>
 al ser todo certeza<br>
 giro a velocidad de combate<br>
@@ -153,7 +154,7 @@ en este mismo lugar dí nacimiento a sublimes esperanzas<br>
 y los maestros advirtieron que al adquirir el poder de crearlas<br>
 debería por obligación también aprender el ritual para su aniquilación<br>
 ya que hay esperanzas por las que vale la pena dar la vida por que la engrandecen<br>
-y otras ilusorias que por la fuerza intentan arrebatártela para reducirla<br>
+y otras ilusorias que por la fuerza intentan arrebatártela para reducirla,<br>
 la verdadera dificultad estriba en saber diferenciar las primeras de las segundas<br>
 pero aún más difícil, encontrar el momento y la fuerza para el sacrificio,<br>
 me prometieron que<br>
