@@ -21,7 +21,7 @@ Hago que mi esperanza tome esa forma física<br>
 imagen idéntica a la del cuerpo de la amada<br>
 la llevo hasta el mas majestuoso de los templos de toda Heliópolis<br>
 aquel enclavado en una altísima y rocosa peña costera<br>
-y en el que por su monumentalidad arquitectónica, su fauna, y por sentido común<br>
+en el que por su monumentalidad arquitectónica, su fauna, y por sentido común<br>
 sólo podrían celebrarse los más solemnes actos,<br>
 por ejemplo,<br>
 el Fénix es un ave endémica de estos parajes,<br>
