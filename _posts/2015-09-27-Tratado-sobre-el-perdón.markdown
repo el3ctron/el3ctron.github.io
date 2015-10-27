@@ -17,8 +17,8 @@ categories:
 
 <!-- more -->
 ---
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gzI_GrBP2HM" frameborder="0" allowfullscreen></iframe>
-<br>
+<center><iframe width="560" height="315" src="https://www.youtube.com/embed/gzI_GrBP2HM" frameborder="0" allowfullscreen></iframe></center>
+---<br>
 <br>
 Hago que mi esperanza tome esa forma física<br>
 imagen idéntica a la del cuerpo de la amada<br>
