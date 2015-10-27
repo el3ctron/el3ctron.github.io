@@ -32,9 +32,9 @@ la belleza del paisaje<br>
 poderosas olas en lontananza que se crispan y caen como en cámara lenta<br>
 los plenos 360 grados del horizonte en su plena y perfecta circunferencia,<br>
 panóptico de Utopía..<br>
-atardece<br>
 <center><iframe width="560" height="315" src="https://www.youtube.com/embed/gzI_GrBP2HM" frameborder="0" allowfullscreen></iframe></center>
 <br>
+atardece<br>
 contemplo<br>
  - "con unos días de anterioridad, (le comenté a mi esperanza)
 a sesión extraordinaria fui convocado,<br>
@@ -74,6 +74,21 @@ me prometieron que<br>
 mi Emperador y sus batallones sagrados de claridad estarían de mi lado<br>
 y podré defraudar una ilusión mía, pero no a ellos<br>
 una ilusión a la larga es solo eso<br>
+hice hasta lo imposible para no perderla<br>
+fui desafiado y conducido hasta este paraje<br>
+nada fácil<br>
+esto<br>
+va en contra de la naturaleza de mi propio latir,<br>
+ese que se hacía promesa en cada centímetro de los kilómetros que recorría<br>
+desde la costa hasta los llanos<br>
+desde el caribe hasta el pacífico<br>
+por usted<br>
+por que la amaba<br>
+primero inclusive que a todas mis causas más nobles y solitarias<br>
+a las que tantas veces puse a un lado para ir detrás de su mirar<br>
+pero sepa<br>
+que mi paz y mi fuerza van por encima de todo<br>
+hay pérdidas que son un auténtico desafío para el alma pero que son una genuina victoria para un hombre al lograr desapegarlas<br>
 no hay espera<br>
 sé que es el momento<br>
 sin embargo<br>
@@ -103,7 +118,9 @@ entonces tampoco espera<br>
 al ser todo certeza<br>
 giro a velocidad de combate<br>
 desenfundo<br>
-y desde abajo una diagonal de alta precisión inflinge el corte letal sobre algún punto de su aorta<br>
+y<br>
+desde abajo<br>
+una diagonal de alta precisión inflinge el corte letal sobre algún punto de su aorta<br>
 ya que esa también es la naturaleza de un sable de oro<br>
 la de crear eclipses<br>
 cataclismos<br>
@@ -140,21 +157,6 @@ y aunque la supieran<br>
 sería esta la ocasión para demostrar la fuerza suficiente para sobreponerme al humano y caprichoso deseo, tampoco podría buscarla<br>
 sería más fácil aceptar el desafío de continuar sufriendo que el de acabar la pena de un tajo<br>
 pero yo no soy ningún cobarde<br>
-hice hasta lo imposible para no perderla<br>
-fui desafiado y conducido hasta este paraje<br>
-nada fácil<br>
-esto<br>
-va en contra de la naturaleza de mi propio latir,<br>
-ese que se hacía promesa en cada centímetro de los kilómetros que recorría<br>
-desde la costa hasta los llanos<br>
-desde el caribe hasta el pacífico<br>
-por usted<br>
-por que la amaba<br>
-más inclusive que a todas mis causas nobles, perdidas y solitarias<br>
-a las que tantas veces puse a un lado para ir detrás de su mirar<br>
-pero sepa<br>
-que mi paz y mi fuerza van por encima de todo<br>
-hay pérdidas que son un auténtico desafío para el alma pero que son una genuina victoria para un hombre al lograr desapegarlas<br>
 anticipé en las Acacías que la luz de esa mirada se desvanecería<br>
 como ahora ocurre,<br>
 se extingue, aún<br>
