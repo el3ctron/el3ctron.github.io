@@ -17,8 +17,6 @@ categories:
 
 <!-- more -->
 ---
-<center><iframe width="560" height="315" src="https://www.youtube.com/embed/gzI_GrBP2HM" frameborder="0" allowfullscreen></iframe></center>
----<br>
 Hago que mi esperanza tome esa forma física<br>
 imagen idéntica a la del cuerpo de la amada<br>
 la llevo hasta el mas majestuoso de los templos de toda Heliópolis<br>
@@ -35,6 +33,7 @@ poderosas olas en lontananza que se crispan y caen como en cámara lenta<br>
 los plenos 360 grados del horizonte en su plena y perfecta circunferencia,<br>
 panóptico de Utopía..<br>
 atardece<br>
+<center><iframe width="560" height="315" src="https://www.youtube.com/embed/gzI_GrBP2HM" frameborder="0" allowfullscreen></iframe></center>
 contemplo<br>
  - "con unos días de anterioridad, (le comenté a mi esperanza)
 a sesión extraordinaria fui convocado,<br>
@@ -64,6 +63,18 @@ sé que es el momento<br>
 lo recuerdo<br>
 traje hasta ese altar a mi bellísima esperanza por una razón<br>
 la sentencia fue dada con anterioridad<br>
+en este mismo lugar dí nacimiento a sublimes esperanzas<br>
+y los maestros advirtieron que al adquirir el poder de crearlas<br>
+debería por obligación también aprender el ritual para su aniquilación<br>
+ya que hay esperanzas por las que vale la pena dar la vida por que la engrandecen<br>
+y otras ilusorias que por la fuerza intentan arrebatártela para reducirla,<br>
+la verdadera dificultad estriba en saber diferenciar las primeras de las segundas<br>
+pero aún más difícil, encontrar el momento y la fuerza para el sacrificio,<br>
+me prometieron que<br>
+mi Emperador y sus batallones sagrados de claridad estarían de mi lado<br>
+y podré defraudar una ilusión mía, pero no a ellos<br>
+una ilusión a la larga es solo eso<br>
+¿qué es el partir en dos el recordar con cariño a quien no tiene inconveniente en hacerte daño?<br>
 no hay espera<br>
 entre una pulsación cada vez más acelerada<br>
 espero<br>
@@ -153,19 +164,6 @@ porque hasta eso termina atravesándose<br>
 pero aunque sean estos los últimos instantes de esos ojos con vida<br>
 de esos que en otrora por preciosidad causaran sismos de tragedia<br>
 no hay marcha atrás,<br>
-en este mismo lugar dí nacimiento a sublimes esperanzas<br>
-y los maestros advirtieron que al adquirir el poder de crearlas<br>
-debería por obligación también aprender el ritual para su aniquilación<br>
-ya que hay esperanzas por las que vale la pena dar la vida por que la engrandecen<br>
-y otras ilusorias que por la fuerza intentan arrebatártela para reducirla,<br>
-la verdadera dificultad estriba en saber diferenciar las primeras de las segundas<br>
-pero aún más difícil, encontrar el momento y la fuerza para el sacrificio,<br>
-me prometieron que<br>
-mi Emperador y sus batallones sagrados de claridad estarían de mi lado<br>
-y podré defraudar una ilusión mía, pero no a ellos<br>
-una ilusión a la larga es solo eso<br>
-¿qué es el apartar el recordar con cariño a quien no tiene inconveniente en hacerte daño?<br>
-¿que es eso sino una inmensísima victoria?<br>
 en los últimos tiempos tuve la oportunidad de desplegar innumerables batallas, diarias, muchas<br>
 forzado las traduje<br>
 como siempre,<br>
@@ -186,6 +184,8 @@ podría ser más difícil el provocar la derrota que el conseguir cualquier otro
 sin embargo, comprendo que replegar los ejércitos del corazón es también un arte<br>
 entonces un fénix me ofrece una pirueta majestuosa en el aire<br>
 confirmo que no es un error!<br>
+¿qué es el partir en dos el recordar con cariño a quien no tiene inconveniente en hacerte daño?<br>
+¿que es eso sino una inmensísima victoria?<br>
 entre la congoja por mi pérdida<br>
 exijo potestad total sobre mi voluntad<br>
 se me concede,<br>
