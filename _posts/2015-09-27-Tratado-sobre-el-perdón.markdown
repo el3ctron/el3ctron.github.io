@@ -45,6 +45,7 @@ y con un ojo cerrado<br>
 la alineó al frente de la nariz,<br>
 apuntando<br>
 señaló<br>
+seguidamente mencionó un nombre<br>
 me reveló claramente algo que siempre jugó como mi enemigo<br>
 pero que yo entendía como mi aliada y mi inspiración<br>
 intenté desoír por que esas verdades presentadas tan crudas duelen<br>
@@ -174,7 +175,7 @@ a desafío<br>
 quise ganarlas todas<br>
 he sido el afortunado que ha conseguido casi todo lo que ha querido<br>
 pero esta vez encontré que mi valor dependía no de la victoria en ellas sino de mi capacidad para seleccionarlas,<br>
-era cierto, tan cierto... una tautología!<br>
+era cierto, tan cierto...<br>
 no podía ganarlas todas<br>
 la más grande hazaña de un espíritu humano, más grande a veces que el triunfo mismo<br>
 muchas veces consiste en una silenciosísima retirada<br>
@@ -182,9 +183,9 @@ por que el armamento que despliega mi alma bajo el influjo de un apasionamiento<
 lleva muchas veces<br>
 una fuerza que excede la de mis propias manos<br>
 por lo tanto existirían ocasiones en que sería casi imposible<br>
-vencerme a mí mismo,
-podría ser más difícil el provocar la derrota que el conseguir cualquier otro resultado<br>
-sin embargo, comprendo que replegar los ejércitos del corazón es también un arte<br>
+vencerme a mí mismo,<br>
+mire, podría ser más difícil inclusive el provocar la derrota que el conseguir cualquier otro resultado<br>
+comprendo que replegar los ejércitos del corazón es también un arte<br>
 entonces un fénix me ofrece una pirueta majestuosa en el aire<br>
 confirmo que no es un error!<br>
 ¿qué es el partir en dos el recordar con cariño a quien no tiene inconveniente en hacerte daño?<br>
@@ -198,7 +199,6 @@ fortaleza en el alma y en mi cuerpo por favor<br>
 TRIPLICADA<br>
 sea la liberación!<br>
 Dueño y Señor de todos los territorios pisados por el cardionauta<br>
-que se detone el carnaval, que sea la fiesta!<br>
 dejo firmada en Brasil,<br>
 la declaración de independencia de mi corazón.<br>
 mi facultad no depende de nadie, excepto de mi claridad<br>
