@@ -59,8 +59,6 @@ contemplo el horizonte y espero,<br>
 en los casos más tortuosos al ángel del génesis que detuviera la mano victimaria y le salvara la vida a Isaac de manos de su padre,<br>
 otro desenlace,<br>
 pero no llega,<br>
-entonces<br>
-sé que es el momento<br>
 lo recuerdo<br>
 traje hasta ese altar a mi bellísima esperanza por una razón<br>
 la sentencia fue dada con anterioridad<br>
@@ -71,12 +69,14 @@ ya que hay esperanzas por las que vale la pena dar la vida por que la engrandece
 y otras ilusorias que por la fuerza intentan arrebatártela para reducirla,<br>
 la verdadera dificultad estriba en saber diferenciar las primeras de las segundas<br>
 pero aún más difícil, encontrar el momento y la fuerza para el sacrificio,<br>
-sería difícil y doloroso, pero<br>
+sería difícil y doloroso, pero,<br>
 me prometieron que<br>
 mi Emperador y sus batallones sagrados de claridad estarían de mi lado<br>
 y podré defraudar una ilusión mía, pero no a ellos<br>
 una ilusión a la larga es solo eso<br>
 no hay espera<br>
+sé que es el momento<br>
+sin embargo<br>
 entre una pulsación cada vez más acelerada<br>
 espero<br>
 siempre<br>
