@@ -34,6 +34,7 @@ los plenos 360 grados del horizonte en su plena y perfecta circunferencia,<br>
 panóptico de Utopía..<br>
 atardece<br>
 <center><iframe width="560" height="315" src="https://www.youtube.com/embed/gzI_GrBP2HM" frameborder="0" allowfullscreen></iframe></center>
+<br>
 contemplo<br>
  - "con unos días de anterioridad, (le comenté a mi esperanza)
 a sesión extraordinaria fui convocado,<br>
@@ -51,7 +52,7 @@ y me desafió:<br>
  - "si lo que lo que yace en ese pecho es una fuerza INVENCIBLE"<br>
  - "la casta misma de la resiliencia!", respondí al Jefe Máximo mientras se acercaba para ofrecerme la mejor de sus armas, me replicó:<br>
  - "esas no son solo unas frases acuñadas sobre algún texto pseudopoético,<br>
-entenderá ahora<br>
+entenderá ahora (mientras ponía el sable en mis manos)<br>
 que<br>
 esto corre en tiempo presente puro y continuo."<br>
 contemplo el horizonte y espero,<br>
@@ -70,11 +71,11 @@ ya que hay esperanzas por las que vale la pena dar la vida por que la engrandece
 y otras ilusorias que por la fuerza intentan arrebatártela para reducirla,<br>
 la verdadera dificultad estriba en saber diferenciar las primeras de las segundas<br>
 pero aún más difícil, encontrar el momento y la fuerza para el sacrificio,<br>
+sería difícil y doloroso, pero<br>
 me prometieron que<br>
 mi Emperador y sus batallones sagrados de claridad estarían de mi lado<br>
 y podré defraudar una ilusión mía, pero no a ellos<br>
 una ilusión a la larga es solo eso<br>
-¿qué es el partir en dos el recordar con cariño a quien no tiene inconveniente en hacerte daño?<br>
 no hay espera<br>
 entre una pulsación cada vez más acelerada<br>
 espero<br>
