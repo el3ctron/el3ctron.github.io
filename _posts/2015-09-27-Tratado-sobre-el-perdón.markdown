@@ -17,6 +17,9 @@ categories:
 
 <!-- more -->
 ---
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gzI_GrBP2HM" frameborder="0" allowfullscreen></iframe>
+<br>
+<br>
 Hago que mi esperanza tome esa forma física<br>
 imagen idéntica a la del cuerpo de la amada<br>
 la llevo hasta el mas majestuoso de los templos de toda Heliópolis<br>
@@ -139,7 +142,7 @@ más inclusive que a todas mis causas nobles, perdidas y solitarias<br>
 a las que tantas veces puse a un lado para ir detrás de su mirar<br>
 pero sepa<br>
 que mi paz y mi fuerza van por encima de todo<br>
-hay pérdidas que son un auténtico desafío para alma pero que son una genuina victoria para un hombre al lograr desapegarlas<br>
+hay pérdidas que son un auténtico desafío para el alma pero que son una genuina victoria para un hombre al lograr desapegarlas<br>
 anticipé en las Acacías que la luz de esa mirada se desvanecería<br>
 como ahora ocurre,<br>
 se extingue, aún<br>
