@@ -194,9 +194,9 @@ soberanía absoluta sobre mi poder aunque estuviese mermado<br>
 conferida<br>
 fortaleza en el alma y en mi cuerpo por favor<br>
 TRIPLICADA<br>
-que se detone el carnaval, que sea la fiesta!<br>
 sea la liberación!<br>
 Dueño y Señor de todos los territorios pisados por el cardionauta<br>
+que se detone el carnaval, que sea la fiesta!<br>
 dejo firmada en Brasil,<br>
 la declaración de independencia de mi corazón.<br>
 mi facultad no depende de nadie, excepto de mi claridad<br>
@@ -206,11 +206,10 @@ regreso a terminar el caballo galopante al óleo<br>
 a perfeccionar unos acordes<br>
 por el rugir de una Libertad que casi dejo abandonada en Colombia ó en el peor de los casos mal vendida por satisfacer un afán que nunca existió<br>
 FUERA DE HELIÓPOLIS!!!<br>
-entonces<br>
+se quiebran las promesas ad aeternum,<br>
 de un movimiento<br>
 una revolución,<br>
-se quiebran las promesas ad aeternum,<br>
-por que para eso sirve también este sable dorado de tan radical y agudo filo quex<br>
+por que para eso sirve también este sable dorado de tan radical y agudo filo que<br>
 en otro entonces fuese ofrecido incondicionalmente para protegerla<br>
 y ahora entenderá<br>
 que existen cosas más fuertes que el más puro diamante<br>
@@ -218,7 +217,7 @@ de la saudade<br>
 las lunas llenas en Rio<br>
 se volverán antena fortuita de mensajes telepáticos dirigidos a cualquier otro lugar<br>
 pero no más a ud<br>
-Violeta Morada<br>
+falsa Violeta Morada<br>
 ni un renglón<br>
 ni una letra<br>
 nada<br>
