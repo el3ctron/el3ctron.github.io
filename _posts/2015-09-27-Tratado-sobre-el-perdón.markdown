@@ -19,7 +19,6 @@ categories:
 ---
 <center><iframe width="560" height="315" src="https://www.youtube.com/embed/gzI_GrBP2HM" frameborder="0" allowfullscreen></iframe></center>
 ---<br>
-<br>
 Hago que mi esperanza tome esa forma física<br>
 imagen idéntica a la del cuerpo de la amada<br>
 la llevo hasta el mas majestuoso de los templos de toda Heliópolis<br>
@@ -113,15 +112,16 @@ POR QUE EN ESA VENA ABIERTA SE ABRE EL PORTAL POR DONDE LA DESTIERRO DE PLATONIA
 con las manos temblando<br>
 envaino<br>
 ya es tarde<br>
-no es esta una cortadita del que busca la cobarde amenaza ó chantajista coacción<br>
+no es esta una cobarde cortadita del que busca chantajista amenaza ó coacción<br>
 la grieta de roca enorme, se hace rajadura de montaña y luego abismal cañón de profundidad insondable<br>
 y aunque se alcance a escurrir el vacío del que quiere detener y devolver el tiempo<br>
 el segundo es de imposible alcance<br>
 tiquete sin fecha de regreso,<br>
 hasta el otro mundo,<br>
 proscripta y deportada<br>
-díganme, ¿quien de los mortales ó miembros del sagrado concejo supremo tiene el poder de devolver el tiempo?<br>
-la pregunta del millón en el Olimpo<br>
+ó díganme,<br>
+¿quien de los mortales ó miembros del sagrado concejo supremo tiene el poder de devolver el tiempo?<br>
+la pregunta del millón en el Olimpo!<br>
 SIN RESPUESTA<br>
 ni los dioses la conocen<br>
 y aunque la supieran<br>
@@ -164,13 +164,14 @@ me prometieron que<br>
 mi Emperador y sus batallones sagrados de claridad estarían de mi lado<br>
 y podré defraudar una ilusión mía, pero no a ellos<br>
 una ilusión a la larga es solo eso<br>
-¿qué es el poner a un lado el recordar con cariño a quien no tiene inconveniente en hacerte daño?<br>
+¿qué es el apartar el recordar con cariño a quien no tiene inconveniente en hacerte daño?<br>
 ¿que es eso sino una inmensísima victoria?<br>
 en los últimos tiempos tuve la oportunidad de desplegar innumerables batallas, diarias, muchas<br>
 forzado las traduje<br>
 como siempre,<br>
 a desafío<br>
 quise ganarlas todas<br>
+he sido el afortunado que ha conseguido casi todo lo que ha querido<br>
 pero esta vez encontré que mi valor dependía no de la victoria en ellas sino de mi capacidad para seleccionarlas,<br>
 era cierto, tan cierto... una tautología!<br>
 no podía ganarlas todas<br>
@@ -206,10 +207,10 @@ por el rugir de una Libertad que casi dejo abandonada en Colombia ó en el peor 
 FUERA DE HELIÓPOLIS!!!<br>
 entonces<br>
 de un movimiento<br>
-una revolución<br>
-se quiebran las promesas ad aeternum<br>
-por que para eso sirve también este sable dorado de tan radical y agudo filo<br>
-que en otro entonces fuese ofrecido incondicionalmente para protegerla<br>
+una revolución,<br>
+se quiebran las promesas ad aeternum,<br>
+por que para eso sirve también este sable dorado de tan radical y agudo filo quex<br>
+en otro entonces fuese ofrecido incondicionalmente para protegerla<br>
 y ahora entenderá<br>
 que existen cosas más fuertes que el más puro diamante<br>
 de la saudade<br>
