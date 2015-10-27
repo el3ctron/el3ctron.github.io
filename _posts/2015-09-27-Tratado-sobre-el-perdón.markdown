@@ -204,13 +204,14 @@ la declaración de independencia de mi corazón.<br>
 mi facultad no depende de nadie, excepto de mi claridad<br>
 He aquí mi inspiración intacta!<br>
 He aquí mi inspiración invicta!<br>
+que se detone el carnaval, que sea la fiesta!<br>
 regreso a terminar el caballo galopante al óleo<br>
 a perfeccionar unos acordes<br>
 por el rugir de una Libertad que casi dejo abandonada en Colombia ó en el peor de los casos mal vendida por satisfacer un afán que nunca existió<br>
 FUERA DE HELIÓPOLIS!!!<br>
-se quiebran las promesas ad aeternum,<br>
-de un movimiento<br>
-una revolución,<br>
+que se quiebren las promesas ad aeternum,<br>
+de un movimiento de mi mano<br>
+nace una revolución,<br>
 por que para eso sirve también este sable dorado de tan radical y agudo filo que<br>
 en otro entonces fuese ofrecido incondicionalmente para protegerla<br>
 y ahora entenderá<br>
