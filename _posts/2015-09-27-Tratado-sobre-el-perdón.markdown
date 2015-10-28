@@ -57,7 +57,7 @@ entenderá ahora (mientras ponía el sable en mis manos)<br>
 que<br>
 esto corre en tiempo presente puro y continuo."<br>
 contemplo el horizonte y espero,<br>
-en los casos más tortuosos al ángel del génesis que detuviera la mano victimaria y le salvara la vida a Isaac de manos de su padre,<br>
+en los casos más tortuosos al ángel del génesis que detuviera la mano victimaria y le salvara la vida a Isaac de su padre,<br>
 otro desenlace,<br>
 pero no llega,<br>
 lo recuerdo<br>
@@ -71,7 +71,7 @@ y otras ilusorias que por la fuerza intentan arrebatártela para reducirla,<br>
 la verdadera dificultad estriba en saber diferenciar las primeras de las segundas<br>
 pero aún más difícil, encontrar el momento y la fuerza para el sacrificio,<br>
 sería difícil y doloroso, pero,<br>
-me prometieron que<br>
+me prometieron, que<br>
 mi Emperador y sus batallones sagrados de claridad estarían de mi lado<br>
 y podré defraudar una ilusión mía, pero no a ellos<br>
 una ilusión a la larga es solo eso<br>
@@ -198,8 +198,8 @@ conferida<br>
 fortaleza en el alma y en mi cuerpo por favor<br>
 TRIPLICADA<br>
 sea la liberación!<br>
-Dueño y Señor de todos los territorios pisados por el cardionauta<br>
 dejo firmada en Brasil,<br>
+Dueño y Señor de todos los territorios pisados por el cardionauta<br>
 la declaración de independencia de mi corazón.<br>
 mi facultad no depende de nadie, excepto de mi claridad<br>
 He aquí mi inspiración intacta!<br>
@@ -208,10 +208,10 @@ que se detone el carnaval, que sea la fiesta!<br>
 regreso a terminar el caballo galopante al óleo<br>
 a perfeccionar unos acordes<br>
 por el rugir de una Libertad que casi dejo abandonada en Colombia ó en el peor de los casos mal vendida por satisfacer un afán que nunca existió<br>
-FUERA DE HELIÓPOLIS!!!<br>
-que se quiebren las promesas ad aeternum,<br>
 de un movimiento de mi mano<br>
 nace una revolución,<br>
+FUERA DE HELIÓPOLIS!!!<br>
+que se quiebren las promesas ad aeternum,<br>
 por que para eso sirve también este sable dorado de tan radical y agudo filo que<br>
 en otro entonces fuese ofrecido incondicionalmente para protegerla<br>
 y ahora entenderá<br>
