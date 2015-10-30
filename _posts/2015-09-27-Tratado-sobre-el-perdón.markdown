@@ -61,20 +61,8 @@ en los casos más tortuosos al ángel del génesis que detuviera la mano victima
 otro desenlace,<br>
 pero no llega,<br>
 lo recuerdo<br>
-traje hasta ese altar a mi bellísima esperanza por una razón<br>
+traje hasta este altar a mi bellísima esperanza por una razón<br>
 la sentencia fue dada con anterioridad<br>
-en este mismo lugar dí nacimiento a sublimes esperanzas<br>
-y los maestros advirtieron que al adquirir el poder de crearlas<br>
-debería por obligación también aprender el ritual para su aniquilación<br>
-ya que hay esperanzas por las que vale la pena dar la vida por que la engrandecen<br>
-y otras ilusorias que por la fuerza intentan arrebatártela para reducirla,<br>
-la verdadera dificultad estriba en saber diferenciar las primeras de las segundas<br>
-pero aún más difícil, encontrar el momento y la fuerza para el sacrificio,<br>
-sería difícil y doloroso, pero,<br>
-me prometieron, que<br>
-mi Emperador y sus batallones sagrados de claridad estarían de mi lado<br>
-y podré defraudar una ilusión mía, pero no a ellos<br>
-una ilusión a la larga es solo eso<br>
 hice hasta lo imposible para no perderla<br>
 fui desafiado y conducido hasta este paraje<br>
 nada fácil<br>
@@ -88,9 +76,21 @@ por que la amaba<br>
 primero inclusive que a todas mis causas más nobles y solitarias<br>
 a las que tantas veces puse a un lado para ir detrás de su mirar<br>
 pero sepa<br>
-que mi paz y mi fuerza van por encima de todo<br>
-hay pérdidas que son un auténtico desafío para el alma pero que son una genuina victoria para un hombre al lograr desapegarlas<br>
-no hay espera<br>
+que mi paz y mi fuerza van por encima de todo,<br>
+en este mismo altar dí nacimiento a sublimes esperanzas<br>
+y los maestros advirtieron que al adquirir el poder de crearlas<br>
+debería por obligación también aprender el ritual para su aniquilación<br>
+ya que hay esperanzas por las que vale la pena dar la vida por que la engrandecen<br>
+y otras ilusorias que por la fuerza intentan arrebatártela para reducirla,<br>
+la verdadera dificultad estriba en saber diferenciar las primeras de las segundas<br>
+pero aún más difícil, encontrar el momento y la fuerza para el sacrificio,<br>
+sería difícil y doloroso, pero,<br>
+me prometieron, que<br>
+mi Emperador y sus batallones sagrados de claridad estarían de mi lado<br>
+y podré defraudar una ilusión mía, pero no a ellos<br>
+una ilusión a la larga es solo eso<br>
+es mas, hay pérdidas que son un auténtico desafío para el alma pero que son una genuina victoria para un hombre al lograr desapegarlas,<br>
+ya no hay espera,<br>
 sé que es el momento<br>
 sin embargo<br>
 entre una pulsación cada vez más acelerada<br>
@@ -115,7 +115,7 @@ a una centella remota<br>
 le sigue un trueno<br>
 la voz más profunda de los dioses<br>
 (es la señal)<br>
-entonces tampoco espera<br>
+entonces tampoco espera ni duda<br>
 al ser todo certeza<br>
 giro a velocidad de combate<br>
 desenfundo<br>
@@ -139,17 +139,20 @@ vacío<br>
 entienda<br>
 la expulsión es el pago que equilibra la balanza del perdón<br>
 POR QUE EN ESA VENA ABIERTA SE ABRE EL PORTAL POR DONDE LA DESTIERRO DE PLATONIA<br>
+cuando en la realidad material se liquida una duda, en Platonia inicia una lluvia<br>
+y llueve<br>
+el mar enbravecido<br>
 con las manos temblando<br>
-envaino<br>
+envaino,<br>
 ya es tarde<br>
-no es esta una cobarde cortadita del que busca chantajista amenaza ó coacción<br>
+no es esta la cobarde cortadita del que busca chantajista amenaza ó miserable coacción<br>
 la grieta de roca enorme, se hace rajadura de montaña y luego abismal cañón de profundidad insondable<br>
 y aunque se alcance a escurrir el vacío del que quiere detener y devolver el tiempo<br>
 el segundo es de imposible alcance<br>
 tiquete sin fecha de regreso,<br>
 hasta el otro mundo,<br>
-proscripta y deportada<br>
-ó díganme,<br>
+proscripta y deportada.<br>
+Díganme,<br>
 ¿quien de los mortales ó miembros del sagrado concejo supremo tiene el poder de devolver el tiempo?<br>
 la pregunta del millón en el Olimpo!<br>
 SIN RESPUESTA<br>
@@ -173,17 +176,18 @@ forzado las traduje<br>
 como siempre,<br>
 a desafío<br>
 quise ganarlas todas<br>
-he sido el afortunado que ha conseguido casi todo lo que ha querido<br>
-pero esta vez encontré que mi valor dependía no de la victoria en ellas sino de mi capacidad para seleccionarlas,<br>
+pero esta vez encontré que el valor dependía no de la victoria en ellas sino de mi capacidad para seleccionarlas,<br>
 era cierto, tan cierto...<br>
 no podía ganarlas todas<br>
-la más grande hazaña de un espíritu humano, más grande a veces que el triunfo mismo<br>
+pese a haber sido el afortunado que ha conseguido casi todo lo que ha querido<br>
+la más grande hazaña de un espíritu humano, más grande a veces que el triunfo mismo y sus tesoros<br>
 muchas veces consiste en una silenciosísima retirada<br>
 por que el armamento que despliega mi alma bajo el influjo de un apasionamiento<br>
 lleva muchas veces<br>
 una fuerza que excede la de mis propias manos<br>
 por lo tanto existirían ocasiones en que sería casi imposible<br>
 vencerme a mí mismo,<br>
+y este caso fué especial<br>
 mire, podría ser más difícil inclusive el provocar la derrota que el conseguir cualquier otro resultado<br>
 comprendo que replegar los ejércitos del corazón es también un arte<br>
 entonces un fénix me ofrece una pirueta majestuosa en el aire<br>
@@ -197,22 +201,24 @@ soberanía absoluta sobre mi poder aunque estuviese mermado<br>
 conferida<br>
 fortaleza en el alma y en mi cuerpo por favor<br>
 TRIPLICADA<br>
-sea la liberación!<br>
-dejo firmada en Brasil,<br>
+que se detone la fiesta, que inicie el carnaval<br>
+sea entonces la liberación!<br>
 Dueño y Señor de todos los territorios pisados por el cardionauta<br>
+dejo firmada en Brasil,<br>
 la declaración de independencia de mi corazón.<br>
+que se detone la fiesta, que inicie el carnaval<br>
 mi facultad no depende de nadie, excepto de mi claridad<br>
 He aquí mi inspiración intacta!<br>
 He aquí mi inspiración invicta!<br>
-que se detone el carnaval, que sea la fiesta!<br>
 regreso a terminar el caballo galopante al óleo<br>
-a perfeccionar unos acordes<br>
+a perfeccionar unos acordes pendientes<br>
 por el rugir de una Libertad que casi dejo abandonada en Colombia ó en el peor de los casos mal vendida por satisfacer un afán que nunca existió<br>
-de un movimiento de mi mano<br>
-nace una revolución,<br>
 FUERA DE HELIÓPOLIS!!!<br>
-que se quiebren las promesas ad aeternum,<br>
+y de un movimiento de mi mano<br>
+nace una revolución,<br>
+se quiebran las promesas ad aeternum,<br>
 por que para eso sirve también este sable dorado de tan radical y agudo filo que<br>
+falsa esperanza Violeta y Morada,<br>
 en otro entonces fuese ofrecido incondicionalmente para protegerla<br>
 y ahora entenderá<br>
 que existen cosas más fuertes que el más puro diamante<br>
@@ -220,7 +226,6 @@ de la saudade<br>
 las lunas llenas en Rio<br>
 se volverán antena fortuita de mensajes telepáticos dirigidos a cualquier otro lugar<br>
 pero no más a ud<br>
-falsa Violeta Morada<br>
 ni un renglón<br>
 ni una letra<br>
 nada<br>
