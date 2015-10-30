@@ -32,8 +32,6 @@ la belleza del paisaje<br>
 poderosas olas en lontananza que se crispan y caen como en cámara lenta<br>
 los plenos 360 grados del horizonte en su plena y perfecta circunferencia,<br>
 panóptico de Utopía..<br>
-<center><iframe width="560" height="315" src="https://www.youtube.com/embed/gzI_GrBP2HM" frameborder="0" allowfullscreen></iframe></center>
-<br>
 atardece<br>
 contemplo<br>
  - "con unos días de anterioridad, (le comenté a mi esperanza)
@@ -44,8 +42,7 @@ empuñó su espada<br>
 y con un ojo cerrado<br>
 la alineó al frente de la nariz,<br>
 apuntando<br>
-señaló<br>
-seguidamente mencionó un nombre<br>
+señaló, mencionó un nombre<br>
 me reveló claramente algo que siempre jugó como mi enemigo<br>
 pero que yo entendía como mi aliada y mi inspiración<br>
 intenté desoír por que esas verdades presentadas tan crudas duelen<br>
@@ -90,6 +87,8 @@ mi Emperador y sus batallones sagrados de claridad estarían de mi lado<br>
 y podré defraudar una ilusión mía, pero no a ellos<br>
 una ilusión a la larga es solo eso<br>
 es mas, hay pérdidas que son un auténtico desafío para el alma pero que son una genuina victoria para un hombre al lograr desapegarlas,<br>
+<center><iframe width="560" height="315" src="https://www.youtube.com/embed/gzI_GrBP2HM" frameborder="0" allowfullscreen></iframe></center>
+<br>
 ya no hay espera,<br>
 sé que es el momento<br>
 sin embargo<br>
@@ -141,7 +140,7 @@ la expulsión es el pago que equilibra la balanza del perdón<br>
 POR QUE EN ESA VENA ABIERTA SE ABRE EL PORTAL POR DONDE LA DESTIERRO DE PLATONIA<br>
 cuando en la realidad material se liquida una duda, sobre Heliópolis inicia una lluvia<br>
 y llueve<br>
-el mar enbravecido<br>
+el mar bravío<br>
 con las manos temblando<br>
 envaino,<br>
 ya es tarde<br>
@@ -150,7 +149,7 @@ la grieta de roca enorme, se hace rajadura de montaña y luego abismal cañón d
 y aunque se alcance a escurrir el vacío del que quiere detener y devolver el tiempo<br>
 el segundo es de imposible alcance<br>
 tiquete sin fecha de regreso,<br>
-hasta el otro mundo,<br>
+hasta el otro mundo ese material en donde todo se repite y muere<br>
 proscripta y deportada.<br>
 Díganme,<br>
 ¿quien de los mortales ó miembros del sagrado concejo supremo tiene el poder de devolver el tiempo?<br>
@@ -188,7 +187,7 @@ una fuerza que excede la de mis propias manos<br>
 por lo tanto existirían ocasiones en que sería casi imposible<br>
 vencerme a mí mismo,<br>
 y este caso fué especial<br>
-mire, podría ser más difícil inclusive el provocar la derrota que el conseguir cualquier otro resultado<br>
+mire, en este caso podría ser más difícil inclusive el provocar la derrota que el conseguir cualquier otro resultado<br>
 comprendo que replegar los ejércitos del corazón es también un arte<br>
 entonces un fénix me ofrece una pirueta majestuosa en el aire<br>
 confirmo que no es un error!<br>
@@ -201,8 +200,8 @@ soberanía absoluta sobre mi poder aunque estuviese mermado<br>
 conferida<br>
 fortaleza en el alma y en mi cuerpo por favor<br>
 TRIPLICADA<br>
-que se detone la fiesta, que inicie el carnaval<br>
-sea entonces la liberación!<br>
+que se detone la fiesta, que inicie el carnaval!<br>
+sea entonces la liberación!!<br>
 Dueño y Señor de todos los territorios pisados por el cardionauta<br>
 dejo firmada en Brasil,<br>
 la declaración de independencia de mi corazón.<br>
@@ -216,9 +215,9 @@ por el rugir de una Libertad que casi dejo abandonada en Colombia ó en el peor 
 FUERA DE HELIÓPOLIS!!!<br>
 y de un movimiento de mi mano<br>
 nace una revolución,<br>
-se quiebran las promesas ad aeternum,<br>
+se quiebran las promesas ad aeternum<br>
+Violeta Morada<br>
 por que para eso sirve también este sable dorado de tan radical y agudo filo que<br>
-falsa esperanza Violeta y Morada,<br>
 en otro entonces fuese ofrecido incondicionalmente para protegerla<br>
 y ahora entenderá<br>
 que existen cosas más fuertes que el más puro diamante<br>
