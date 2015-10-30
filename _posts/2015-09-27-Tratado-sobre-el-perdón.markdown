@@ -61,7 +61,7 @@ lo recuerdo<br>
 traje hasta este altar a mi bellísima esperanza por una razón<br>
 la sentencia fue dada con anterioridad<br>
 hice hasta lo imposible para no perderla<br>
-fui desafiado y conducido hasta este paraje<br>
+pero fui desafiado y conducido hasta este paraje<br>
 nada fácil<br>
 esto<br>
 va en contra de la naturaleza de mi propio latir,<br>
@@ -87,8 +87,6 @@ mi Emperador y sus batallones sagrados de claridad estarían de mi lado<br>
 y podré defraudar una ilusión mía, pero no a ellos<br>
 una ilusión a la larga es solo eso<br>
 es mas, hay pérdidas que son un auténtico desafío para el alma pero que son una genuina victoria para un hombre al lograr desapegarlas,<br>
-<center><iframe width="560" height="315" src="https://www.youtube.com/embed/gzI_GrBP2HM" frameborder="0" allowfullscreen></iframe></center>
-<br>
 ya no hay espera,<br>
 sé que es el momento<br>
 sin embargo<br>
@@ -127,6 +125,8 @@ cataclismos<br>
 apocalipsis<br>
 es<br>
 el momento de rodar los últimos fotogramas de la película de la vida<br>
+<center><iframe width="560" height="315" src="https://www.youtube.com/embed/gzI_GrBP2HM" frameborder="0" allowfullscreen></iframe></center>
+<br>
 de esa vida que dejó de serlo<br>
 antes que se devore otras tantas vidas y otras tantas esperanzas que desde antes que yo naciera ya eran sagradas<br>
 difícil, claro<br>
@@ -167,7 +167,7 @@ no con la velocidad de una vela soplada<br>
 sino más bien con la del avión que parte y se hace un punto lejano llevando adentro a alguien que en algún rincón del alma no quiere ir<br>
 ó con la prisa ó mas bien la lentitud con la que se diluye un gigantesco y pesado arrepentimiento<br>
 porque hasta eso termina atravesándose<br>
-pero aunque sean estos los últimos instantes de esos ojos con vida<br>
+y aunque sean estos los últimos instantes de esos ojos con vida<br>
 de esos que en otrora por preciosidad causaran sismos de tragedia<br>
 no hay marcha atrás,<br>
 en los últimos tiempos tuve la oportunidad de desplegar innumerables batallas, diarias, muchas<br>
