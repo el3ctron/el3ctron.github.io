@@ -139,7 +139,7 @@ vacío<br>
 entienda<br>
 la expulsión es el pago que equilibra la balanza del perdón<br>
 POR QUE EN ESA VENA ABIERTA SE ABRE EL PORTAL POR DONDE LA DESTIERRO DE PLATONIA<br>
-cuando en la realidad material se liquida una duda, en Platonia inicia una lluvia<br>
+cuando en la realidad material se liquida una duda, sobre Heliópolis inicia una lluvia<br>
 y llueve<br>
 el mar enbravecido<br>
 con las manos temblando<br>
