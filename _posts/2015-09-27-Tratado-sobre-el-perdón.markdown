@@ -87,6 +87,8 @@ mi Emperador y sus batallones sagrados de claridad estarían de mi lado<br>
 y podré defraudar una ilusión mía, pero no a ellos<br>
 una ilusión a la larga es solo eso<br>
 es mas, hay pérdidas que son un auténtico desafío para el alma pero que son una genuina victoria para un hombre al lograr desapegarlas,<br>
+<center><iframe width="560" height="315" src="https://www.youtube.com/embed/gzI_GrBP2HM" frameborder="0" allowfullscreen></iframe></center>
+<br>
 ya no hay espera,<br>
 sé que es el momento<br>
 sin embargo<br>
@@ -125,8 +127,6 @@ cataclismos<br>
 apocalipsis<br>
 es<br>
 el momento de rodar los últimos fotogramas de la película de la vida<br>
-<center><iframe width="560" height="315" src="https://www.youtube.com/embed/gzI_GrBP2HM" frameborder="0" allowfullscreen></iframe></center>
-<br>
 de esa vida que dejó de serlo<br>
 antes que se devore otras tantas vidas y otras tantas esperanzas que desde antes que yo naciera ya eran sagradas<br>
 difícil, claro<br>
