@@ -138,18 +138,19 @@ vacío<br>
 entienda<br>
 la expulsión es el pago que equilibra la balanza del perdón<br>
 POR QUE EN ESA VENA ABIERTA SE ABRE EL PORTAL POR DONDE LA DESTIERRO DE PLATONIA<br>
-cuando en la realidad material se liquida una duda, sobre Heliópolis inicia una lluvia<br>
-y llueve<br>
-el mar bravío<br>
+cuando en la realidad material se liquida una duda, sobre Heliópolis inicia una lluvia,<br>
+y llueve,<br>
+el mar se torna bravío<br>
 con las manos temblando<br>
 envaino,<br>
 ya es tarde<br>
 no es esta la cobarde cortadita del que busca chantajista amenaza ó miserable coacción<br>
+esto es definitivo como todo lo que es eterno<br>
 la grieta de roca enorme, se hace rajadura de montaña y luego abismal cañón de profundidad insondable<br>
 y aunque se alcance a escurrir el vacío del que quiere detener y devolver el tiempo<br>
 el segundo es de imposible alcance<br>
 tiquete sin fecha de regreso,<br>
-hasta el otro mundo ese material en donde todo se repite y muere<br>
+hasta el otro mundo<br>
 proscripta y deportada.<br>
 Díganme,<br>
 ¿quien de los mortales ó miembros del sagrado concejo supremo tiene el poder de devolver el tiempo?<br>
