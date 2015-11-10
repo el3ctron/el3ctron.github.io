@@ -141,6 +141,7 @@ POR QUE EN ESA VENA ABIERTA SE ABRE EL PORTAL POR DONDE LA DESTIERRO DE PLATONIA
 cuando en la realidad material se liquida una duda, sobre Heliópolis inicia una lluvia,<br>
 y llueve,<br>
 el mar se torna bravío<br>
+y truena<br>
 con las manos temblando<br>
 envaino,<br>
 ya es tarde<br>
@@ -159,14 +160,14 @@ SIN RESPUESTA<br>
 ni los dioses la conocen<br>
 y aunque la supieran<br>
 sería esta la ocasión para demostrar la fuerza suficiente para sobreponerme al humano y caprichoso deseo, tampoco podría buscarla<br>
-sería más fácil aceptar el desafío de continuar sufriendo que el de acabar la pena de un tajo<br>
-pero yo no soy ningún cobarde<br>
-dicen los textos sagrados que la sobrehumanidad es alcanzada al renunciar justamente a esas cosas que un hombre corriente persigue con avidez,<br>
+sería más fácil aceptar el continuar sufriendo que el desafío de acabar la pena de un tajo<br>
+y yo no soy ningún cobarde,<br>
+dicen los textos sagrados que la sobrehumanidad puede ser alcanzada al renunciar justamente a esas cosas que un hombre corriente persigue con avidez,<br>
 anticipé en las Acacías que la luz de esa mirada se desvanecería<br>
 como ahora ocurre,<br>
 se extingue, aún<br>
 no con la velocidad de una vela soplada<br>
-sino más bien con la del avión que parte y se hace un punto lejano llevando adentro a alguien que en algún rincón del alma no quiere ir<br>
+sino más bien con la del avión que parte y se hace un punto lejano y fino llevando adentro a alguien que en algún rincón del alma no quiere ir<br>
 ó con la prisa ó mas bien la lentitud con la que se diluye un gigantesco y pesado arrepentimiento<br>
 porque hasta eso termina atravesándose<br>
 y aunque sean estos los últimos instantes de esos ojos con vida<br>
@@ -186,16 +187,16 @@ muchas veces consiste en una silenciosísima retirada<br>
 por que el armamento que despliega mi alma bajo el influjo de un apasionamiento<br>
 lleva muchas veces<br>
 una fuerza que excede la de mis propias manos<br>
-por lo tanto existirían unas contadas ocasiones en que sería casi imposible<br>
-vencerme a mí mismo,<br>
-y este caso fué especial<br>
-mire, en este caso podría ser más difícil inclusive el provocar la derrota que el conseguir cualquier otro resultado<br>
+por lo tanto existirían unas contadas ocasiones en que sería casi imposible vencerme a mí mismo,<br>
+y mire, en este caso podría ser más difícil inclusive el provocar la derrota que el conseguir cualquier otro resultado<br>
 entiendo mi error al sobredimensionar una esperanza a la que le dí posibilidad y acceso hasta Platonia<br>
-se que dí una batalla en donde hasta la vida fué jugada, pero<br>
+se que dí una batalla en donde hasta la vida misma fué jugada, pero<br>
+esto ya es distinto<br>
 comprendo que replegar los ejércitos del corazón es también un arte<br>
 entonces un fénix me ofrece una pirueta majestuosa en el aire<br>
 confirmo que no es un error!<br>
 ¿qué es el partir en dos el recordar con cariño a quien no tiene inconveniente en hacerte daño?<br>
+mi emperador hablaba con la verdad!<br>
 ¿que es eso sino una inmensísima victoria?<br>
 entre la congoja por mi pérdida<br>
 exijo potestad total sobre mi voluntad<br>
@@ -204,12 +205,11 @@ soberanía absoluta sobre mi poder aunque estuviese mermado<br>
 conferida<br>
 fortaleza en el alma y en mi cuerpo por favor<br>
 TRIPLICADA<br>
-que se detone la fiesta, que inicie el carnaval!<br>
 sea entonces la liberación!!<br>
 Dueño y Señor de todos los territorios pisados por el cardionauta<br>
 dejo firmada en Brasil,<br>
 la declaración de independencia de mi corazón.<br>
-que se detone la fiesta, que inicie el carnaval<br>
+que se detone la fiesta, que inicie el carnaval!<br>
 mi facultad no depende de nadie, excepto de mi claridad<br>
 He aquí mi inspiración intacta!<br>
 He aquí mi inspiración invicta!<br>
@@ -219,11 +219,13 @@ por el rugir de una Libertad que casi dejo abandonada en Colombia ó en el peor 
 FUERA DE HELIÓPOLIS!!!<br>
 y de un movimiento de mi mano<br>
 nace una revolución,<br>
-Violeta, Morada<br>
+Violeta<br>
+Morada<br>
 se quiebran las promesas ad aeternum<br>
 por que para eso sirve también este sable dorado de tan radical y agudo filo que<br>
 en otro entonces fuese ofrecido incondicionalmente para protegerla<br>
 y ahora entenderá<br>
+que hay cosas con las que no se juega<br>
 que existen cosas más fuertes que el más puro diamante<br>
 de la saudade<br>
 las lunas llenas en Rio<br>
@@ -231,6 +233,7 @@ se volverán antena fortuita de mensajes telepáticos dirigidos a cualquier otro
 pero no más a ud<br>
 ni un renglón<br>
 ni una letra<br>
+ni el inicio de un suspiro<br>
 nada<br>
 <br>
 <br>
