@@ -40,7 +40,7 @@ en los campos de las Acacías Argentinas;<br>
 mi Emperador se presentó<br>
 empuñó su espada<br>
 y con un ojo cerrado<br>
-la alineó al frente de la nariz,<br>
+alineó cacha y punta al frente de la nariz,<br>
 apuntando<br>
 señaló, mencionó un nombre<br>
 me reveló claramente algo que siempre jugó como mi enemigo<br>
@@ -161,6 +161,7 @@ y aunque la supieran<br>
 sería esta la ocasión para demostrar la fuerza suficiente para sobreponerme al humano y caprichoso deseo, tampoco podría buscarla<br>
 sería más fácil aceptar el desafío de continuar sufriendo que el de acabar la pena de un tajo<br>
 pero yo no soy ningún cobarde<br>
+dicen los textos sagrados que la sobrehumanidad es alcanzada al renunciar justamente a esas cosas que un hombre corriente persigue con avidez,<br>
 anticipé en las Acacías que la luz de esa mirada se desvanecería<br>
 como ahora ocurre,<br>
 se extingue, aún<br>
@@ -185,10 +186,12 @@ muchas veces consiste en una silenciosísima retirada<br>
 por que el armamento que despliega mi alma bajo el influjo de un apasionamiento<br>
 lleva muchas veces<br>
 una fuerza que excede la de mis propias manos<br>
-por lo tanto existirían ocasiones en que sería casi imposible<br>
+por lo tanto existirían unas contadas ocasiones en que sería casi imposible<br>
 vencerme a mí mismo,<br>
 y este caso fué especial<br>
 mire, en este caso podría ser más difícil inclusive el provocar la derrota que el conseguir cualquier otro resultado<br>
+entiendo mi error al sobredimensionar una esperanza a la que le dí posibilidad y acceso hasta Platonia<br>
+se que dí una batalla en donde hasta la vida fué jugada, pero<br>
 comprendo que replegar los ejércitos del corazón es también un arte<br>
 entonces un fénix me ofrece una pirueta majestuosa en el aire<br>
 confirmo que no es un error!<br>
@@ -216,8 +219,8 @@ por el rugir de una Libertad que casi dejo abandonada en Colombia ó en el peor 
 FUERA DE HELIÓPOLIS!!!<br>
 y de un movimiento de mi mano<br>
 nace una revolución,<br>
+Violeta, Morada<br>
 se quiebran las promesas ad aeternum<br>
-Violeta Morada<br>
 por que para eso sirve también este sable dorado de tan radical y agudo filo que<br>
 en otro entonces fuese ofrecido incondicionalmente para protegerla<br>
 y ahora entenderá<br>
