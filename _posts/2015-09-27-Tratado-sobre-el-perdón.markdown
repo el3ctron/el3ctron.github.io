@@ -130,7 +130,7 @@ el momento de rodar los últimos fotogramas de la película de la vida<br>
 de esa vida que dejó de serlo<br>
 antes que se devore otras tantas vidas y otras tantas esperanzas que desde antes que yo naciera ya eran sagradas<br>
 difícil, claro<br>
-lo único que queda en el aire es el eco producido por el movimiento para el sacrificio<br>
+lo único que queda en el aire es el eco producido por el zumbido del movimiento para el sacrificio<br>
 difícil, claro<br>
 es un momento durísimo,<br>
 de escarlata, bermellón,<br>
@@ -160,9 +160,8 @@ SIN RESPUESTA<br>
 ni los dioses la conocen<br>
 y aunque la supieran<br>
 sería esta la ocasión para demostrar la fuerza suficiente para sobreponerme al humano y caprichoso deseo, tampoco podría buscarla<br>
-sería más fácil aceptar el continuar sufriendo que el desafío de acabar la pena de un tajo<br>
-y yo no soy ningún cobarde,<br>
-dicen los textos sagrados que la sobrehumanidad puede ser alcanzada al renunciar justamente a esas cosas que un hombre corriente persigue con avidez,<br>
+más fácil es aceptar el continuar sufriendo que el desafío de acabar la pena de un tajo, y<br>
+yo no soy ningún cobarde,<br>
 anticipé en las Acacías que la luz de esa mirada se desvanecería<br>
 como ahora ocurre,<br>
 se extingue, aún<br>
@@ -173,37 +172,40 @@ porque hasta eso termina atravesándose<br>
 y aunque sean estos los últimos instantes de esos ojos con vida<br>
 de esos que en otrora por preciosidad causaran sismos de tragedia<br>
 no hay marcha atrás,<br>
+los textos sagrados son reiterativos en que la sobrehumanidad se abre camino al renunciar justamente a esas cosas que un hombre corriente persigue con avidez,<br>
 en los últimos tiempos tuve la oportunidad de desplegar innumerables batallas, diarias, muchas<br>
 forzado las traduje<br>
 como siempre,<br>
 a desafío<br>
 quise ganarlas todas<br>
 pero esta vez encontré que el valor dependía no de la victoria en ellas sino de mi capacidad para seleccionarlas,<br>
-era cierto, tan cierto...<br>
+era cierto, tan cierto,<br>
 no podía ganarlas todas<br>
 pese a haber sido el afortunado que ha conseguido casi todo lo que ha querido<br>
 la más grande hazaña de un espíritu humano, más grande a veces que el triunfo mismo y sus tesoros<br>
-muchas veces consiste en una silenciosísima retirada<br>
-por que el armamento que despliega mi alma bajo el influjo de un apasionamiento<br>
+algunas veces consiste en una silenciosísima retirada<br>
+y esta ocasión fué especial<br>
+en este caso, iba con tanto impulso que podría ser más difícil inclusive el provocar la derrota que el conseguir cualquier otro resultado<br>
+el armamento que despliega mi alma bajo el influjo de un apasionamiento<br>
 lleva muchas veces<br>
 una fuerza que excede la de mis propias manos<br>
-por lo tanto existirían unas contadas ocasiones en que sería casi imposible vencerme a mí mismo,<br>
-y mire, en este caso, iba con tanto impulso que podría ser más difícil inclusive el provocar la derrota que el conseguir cualquier otro resultado<br>
+por lo tanto sería ocasión para que fuese casi imposible vencerme a mí mismo,<br>
 entiendo mi error al sobredimensionar una esperanza a la que le dí posibilidad y acceso hasta Platonia<br>
-se que dí una batalla en donde hasta la vida misma fué jugada,<br>
-tal esfuerzo estoy seguro hubiese dado el mejor de los frutos, ó al menos uno que yo deseara<br>
+dí una batalla en donde hasta la vida misma fué jugada,<br>
+y tal esfuerzo estoy seguro hubiese dado el mejor de los frutos, ó al menos uno que yo deseara<br>
 pero no fué acá<br>
 no es momento de indagar las causas, la lección está servida<br>
 partiré con la tranquilidad de haber dejado la facultad del guerrero explícita<br>
-la batalla ahora es otra<br>
-una inteligencia depende no de un triunfo absoluto sino de la capacidad para seleccionar las batallas,<br>
+ahora la batalla es otra<br>
+si es la inteligencia lo que ha de primar, entonces<br>
+una inteligencia depende no de un triunfo absoluto en un campo sino mas bien de la capacidad para seleccionar las batallas,<br>
 y comprendo que replegar los ejércitos del corazón es también un arte<br>
 entonces un fénix me ofrece una pirueta majestuosa en el aire<br>
 confirmo que no es un error!<br>
 ¿qué es el partir en dos el recordar con cariño a quien no tiene inconveniente en hacerte daño?<br>
 mi emperador hablaba con la verdad,<br>
 ¿que es eso sino una inmensísima victoria?<br>
-entre la congoja por mi pérdida<br>
+entre la congoja por mi "pérdida"<br>
 exijo potestad total sobre mi voluntad<br>
 se me concede,<br>
 soberanía absoluta sobre mi poder aunque estuviese mermado<br>
@@ -231,7 +233,7 @@ por que para eso sirve también este sable dorado de tan radical y agudo filo qu
 en otro entonces fuese ofrecido incondicionalmente para protegerla<br>
 y ahora entenderá<br>
 que hay cosas con las que no se juega<br>
-que existen cosas más fuertes que el más puro diamante<br>
+que existen voluntades más fuertes que el más puro diamante<br>
 de la saudade<br>
 las lunas llenas en Rio<br>
 se volverán antena fortuita de mensajes telepáticos dirigidos a cualquier otro lugar<br>
@@ -301,7 +303,8 @@ nada<br>
 <br>
 <br>
 el horizonte se deforma en una curva ascendente,
-una gigantesca ola alcanzará este lugar para lastrar tus restos del templo hasta el naufragio<br>
+una gigantesca ola alcanzará este lugar para lastrar tus restos del templo hasta el naufragio ó a los fríos abismos oceanicos<br>
+tsunamí de olvido<br>
 resistir,<br>
 amanece<br>
 ahora<br>
