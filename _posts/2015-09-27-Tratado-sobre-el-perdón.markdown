@@ -188,15 +188,21 @@ por que el armamento que despliega mi alma bajo el influjo de un apasionamiento<
 lleva muchas veces<br>
 una fuerza que excede la de mis propias manos<br>
 por lo tanto existirían unas contadas ocasiones en que sería casi imposible vencerme a mí mismo,<br>
-y mire, en este caso podría ser más difícil inclusive el provocar la derrota que el conseguir cualquier otro resultado<br>
+y mire, en este caso, iba con tanto impulso que podría ser más difícil inclusive el provocar la derrota que el conseguir cualquier otro resultado<br>
 entiendo mi error al sobredimensionar una esperanza a la que le dí posibilidad y acceso hasta Platonia<br>
-se que dí una batalla en donde hasta la vida misma fué jugada, pero<br>
-esto ya es distinto<br>
-comprendo que replegar los ejércitos del corazón es también un arte<br>
+se que dí una batalla en donde hasta la vida misma fué jugada,<br>
+tal esfuerzo estoy seguro hubiese dado el mejor de los frutos, ó al menos uno que yo deseara<br>
+pero no fué acá<br>
+no es momento de indagar las causas, ya fué<br>
+la facultad del guerrero quedó explícita<br>
+la batalla ahora es otra<br>
+la escritura del Dios sentencia que más desafío que la victoria total, es renunciar a ella<br>
+una inteligencia depende no de un triunfo absoluto sino de la capacidad para seleccionar las batallas,<br>
+y comprendo que replegar los ejércitos del corazón es también un arte<br>
 entonces un fénix me ofrece una pirueta majestuosa en el aire<br>
 confirmo que no es un error!<br>
 ¿qué es el partir en dos el recordar con cariño a quien no tiene inconveniente en hacerte daño?<br>
-mi emperador hablaba con la verdad!<br>
+mi emperador hablaba con la verdad,<br>
 ¿que es eso sino una inmensísima victoria?<br>
 entre la congoja por mi pérdida<br>
 exijo potestad total sobre mi voluntad<br>
