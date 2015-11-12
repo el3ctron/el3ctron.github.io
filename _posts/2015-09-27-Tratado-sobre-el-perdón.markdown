@@ -193,10 +193,9 @@ entiendo mi error al sobredimensionar una esperanza a la que le dí posibilidad 
 se que dí una batalla en donde hasta la vida misma fué jugada,<br>
 tal esfuerzo estoy seguro hubiese dado el mejor de los frutos, ó al menos uno que yo deseara<br>
 pero no fué acá<br>
-no es momento de indagar las causas, ya fué<br>
-la facultad del guerrero quedó explícita<br>
+no es momento de indagar las causas, la lección está servida<br>
+partiré con la tranquilidad de haber dejado la facultad del guerrero explícita<br>
 la batalla ahora es otra<br>
-la escritura del Dios sentencia que más desafío que la victoria total, es renunciar a ella<br>
 una inteligencia depende no de un triunfo absoluto sino de la capacidad para seleccionar las batallas,<br>
 y comprendo que replegar los ejércitos del corazón es también un arte<br>
 entonces un fénix me ofrece una pirueta majestuosa en el aire<br>
