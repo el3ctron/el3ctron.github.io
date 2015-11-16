@@ -304,6 +304,7 @@ nada<br>
 <br>
 el horizonte se deforma en una curva ascendente,
 una gigantesca ola alcanzará este lugar para lastrar tus restos del templo hasta el naufragio ó a los fríos abismos oceanicos<br>
+igual<br>
 tsunamí de olvido<br>
 resistir,<br>
 amanece<br>
@@ -317,7 +318,7 @@ de cerrar el capítulo e ir más en grande,<br>
 de empuñar mi vida y mis sueños<br>
 reciba mi más generoso silencio,<br>
 por siempre<br>
-las canciones perturbarán el aire de forma distinta<br>
+las canciones que en realidad eran himnos perturbarán el aire de forma distinta<br>
 y duele,<br>
 sería por orgullo si dijera que no<br>
 ó aparentara otra cosa<br>
