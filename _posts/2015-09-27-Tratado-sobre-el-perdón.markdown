@@ -191,7 +191,7 @@ lleva muchas veces<br>
 una fuerza que excede la de mis propias manos<br>
 por lo tanto sería ocasión para que fuese casi imposible vencerme a mí mismo,<br>
 entiendo mi error al sobredimensionar una esperanza a la que le dí posibilidad y acceso hasta Platonia<br>
-dí una batalla en donde hasta la vida misma fué jugada,<br>
+dí lucha en donde hasta la vida misma fué jugada,<br>
 y tal esfuerzo estoy seguro hubiese dado el mejor de los frutos, ó al menos uno que yo deseara<br>
 pero no fué acá<br>
 no es momento de indagar las causas, la lección está servida<br>
@@ -304,7 +304,6 @@ nada<br>
 <br>
 el horizonte se deforma en una curva ascendente,
 una gigantesca ola alcanzará este lugar para lastrar tus restos del templo hasta el naufragio ó a los fríos abismos oceanicos<br>
-igual<br>
 tsunamí de olvido<br>
 resistir,<br>
 amanece<br>
@@ -318,7 +317,7 @@ de cerrar el capítulo e ir más en grande,<br>
 de empuñar mi vida y mis sueños<br>
 reciba mi más generoso silencio,<br>
 por siempre<br>
-las canciones que en realidad eran himnos perturbarán el aire de forma distinta<br>
+las canciones (que en realidad son himnos) perturbarán el aire de forma distinta<br>
 y duele,<br>
 sería por orgullo si dijera que no<br>
 ó aparentara otra cosa<br>
