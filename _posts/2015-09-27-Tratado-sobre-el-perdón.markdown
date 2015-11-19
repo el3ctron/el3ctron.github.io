@@ -198,8 +198,8 @@ pero no fué acá<br>
 no es momento de indagar las causas, la lección está servida<br>
 partiré con la tranquilidad de haber dejado la facultad del guerrero explícita<br>
 ahora la batalla es otra y más ardua<br>
-si la inteligencia es lo que ha de primar, entonces<br>
-esta depende no de un triunfo absoluto en un campo sino mas bien de la capacidad para seleccionar las batallas,<br>
+si la inteligencia es lo que ha de primar,<br>
+esta depende entonces no de un triunfo absoluto en un campo sino mas bien de la capacidad para seleccionar las batallas,<br>
 y comprendo que replegar los ejércitos del corazón es también un arte<br>
 entonces un fénix me ofrece una pirueta majestuosa en el aire<br>
 confirmo que no es un error!<br>
@@ -224,6 +224,7 @@ He aquí mi inspiración invicta!<br>
 regreso a terminar el caballo galopante al óleo<br>
 a perfeccionar unos acordes pendientes<br>
 por el rugir de una Libertad que casi dejo abandonada en Colombia ó en el peor de los casos mal vendida por satisfacer un afán que nunca existió<br>
+por un amar pendiente que se alcanzó a forjar en la inútil espera que la esperaba<br>
 FUERA DE HELIÓPOLIS!!!<br>
 y de un movimiento de mi mano<br>
 nace una revolución,<br>
