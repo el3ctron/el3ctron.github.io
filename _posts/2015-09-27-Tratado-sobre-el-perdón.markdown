@@ -184,7 +184,8 @@ no podía ganarlas todas<br>
 pese a haber sido el afortunado que ha conseguido casi todo lo que ha querido<br>
 la más grande hazaña de un espíritu humano, más grande a veces que el triunfo mismo y sus tesoros<br>
 algunas veces consiste en una silenciosísima retirada<br>
-y esta ocasión fué especial<br>
+no por que sea una renuncia, todo lo contrario<br>
+es más, esta ocasión fué especial<br>
 en este caso, iba con tanto impulso que podría ser más difícil inclusive el provocar la derrota que el conseguir cualquier otro resultado<br>
 el armamento que despliega mi alma bajo el influjo de un apasionamiento<br>
 lleva muchas veces<br>
@@ -196,9 +197,9 @@ y tal esfuerzo estoy seguro hubiese dado el mejor de los frutos, ó al menos uno
 pero no fué acá<br>
 no es momento de indagar las causas, la lección está servida<br>
 partiré con la tranquilidad de haber dejado la facultad del guerrero explícita<br>
-ahora la batalla es otra<br>
-si es la inteligencia lo que ha de primar, entonces<br>
-una inteligencia depende no de un triunfo absoluto en un campo sino mas bien de la capacidad para seleccionar las batallas,<br>
+ahora la batalla es otra y más ardua<br>
+si la inteligencia es lo que ha de primar, entonces<br>
+esta depende no de un triunfo absoluto en un campo sino mas bien de la capacidad para seleccionar las batallas,<br>
 y comprendo que replegar los ejércitos del corazón es también un arte<br>
 entonces un fénix me ofrece una pirueta majestuosa en el aire<br>
 confirmo que no es un error!<br>
