@@ -224,7 +224,7 @@ He aquí mi inspiración invicta!<br>
 regreso a terminar el caballo galopante al óleo<br>
 a perfeccionar unos acordes pendientes<br>
 por el rugir de una Libertad que casi dejo abandonada en Colombia ó en el peor de los casos mal vendida por satisfacer un afán que nunca existió<br>
-por un amar que se alcanzó a dirigir hacia mi a pesar de la inútil espera que la esperaba<br>
+por un amar de otra persona que se alcanzó a dirigir hacia mi a pesar de la inútil espera que la esperaba<br>
 FUERA DE HELIÓPOLIS!!!<br>
 y de un movimiento de mi mano<br>
 nace una revolución,<br>
