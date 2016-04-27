@@ -18,14 +18,14 @@ categories:
 <!-- more -->
 ---
 
-Gaitán no saldría con excusas, definitivamente esgrimiría razones poderosamente lógicas, tal fue siempre su talante. El derrocharía bravura, pero quienes han degustado ese ímpetu en todo su esplendor sabrán que antes que la bravura va la nobleza. La paz es una premisa espiritual que va mucho mas allá de lo ideológico, inclusive va más allá de lo democrático y de lo filosófico. La bravura sólo tiene sentido cuando se le antepone la compasión.
+Gaitán no saldría con excusas, definitivamente esgrimiría razones poderosamente lógicas, tal fue siempre su talante. El derrocharía bravura, pero quienes han degustado ese ímpetu en todo su esplendor sabrán que antes que la bravura va la nobleza, es decir, la paz es una premisa espiritual que va mucho mas allá de lo ideológico, inclusive va más allá de lo democrático y de lo filosófico, entonces bajo esa necesidad, el partidismo carecería de sentido, la bravura sólo tiene fuerza cuando en su base está la compasión.
 
 Gaitán demuestra en su accionar que hay que apostarle a que con lo que hay, hacer lo mejor posible ¿qué hubiera hecho el caudillo en una coyuntura como la que hoy tenemos en nuestro país? ¿qué camino tomar cuando son dos incompetentes los que se tienen por opción?
 
-- El seguramente hubiera decidido, sin bajarle la cabeza a nadie, Y, entendiendo SIMULTÁNEAMENTE, que
+- El seguramente hubiera decidido, sin bajarle la cabeza a nadie, y por otro lado
 - se debería proceder sin duda y apoyar si se puede evitar mas derramamiento de sangre inocente.
 
-y saben que pasa?, que de esas dos opciones, AMBAS COSAS SON POSIBLES, posibles SIMULTÁNEAMENTE.
+y saben que pasa?, que aunque esas dos opciones parezcan mutuamente excluyentes, AMBAS SON POSIBLES SIMULTÁNEAMENTE.
 
 Gaitán hubiera derrotado discursivamente a esos mafiosos que se lucran con la guerra y SIMULTÁNEAMENTE hubiera formulado un camino para llegar a la paz. Es posible. Personalmente pienso que bajo ninguna circunstancia pueden venderse los ideales y valoro en demasía a quienes no lo hacen, reconozco ahí unos grados de integridad altísimos, **pero es perfectamente posible hacer un acercamiento al enemigo sin venderse y sin untarse y sin contagiarse, de la misma forma en como un médico se acerca a su paciente, ya que ello (acercarse al enemigo, a la enfermedad, al problema) es requisito fundamental para llegar a una solución, es decir la paz.**
 
