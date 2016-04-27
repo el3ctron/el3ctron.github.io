@@ -6,8 +6,8 @@ layout: post
 slug: ¿qué-hubiera-hecho-Gaitán?
 permalink: que-hubiera-hecho-Gaitan
 title: ¿qué hubiera hecho Gaitán?
-description: El dilema de la izquierda purista y una que procure el diálogo con las contrapartes, está resuelto: AMBAS formas de izquierda deben existir.
-categories: Colombia, Gaitan
+description: .
+categories: El dilema de la izquierda purista y una que procure el diálogo con las contrapartes, está resuelto: AMBAS formas de izquierda deben existir.
 - Miscellaneous
 ---
 
