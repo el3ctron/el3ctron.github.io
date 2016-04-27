@@ -11,14 +11,14 @@ categories:
 - Miscellaneous
 ---
 
-*Este texto lo escribí el día en que Santos y Zuluaga quedaron en segunda vuelta y me pregunté: Si una decisión tan importante como la paz queda en manos de un inepto, ¿Cuál debería ser la postura a adoptar? ¿sería correcto ayudar en caso de que alguno de los ineptos hiciera un intento por buscar la paz? así que encontré necesario ir hasta la base y preguntarme ¿qué hubiera hecho en este caso Gaitán?*
+*Este texto lo escribí el día en que Santos y Zuluaga quedaron en segunda vuelta con la responsabilidad del proceso de paz para definirse y me pregunté: Si una decisión tan importante como la paz queda en manos de un inepto, ¿Cuál debería ser la postura que la izquierda debería adoptar? ¿sería correcto ayudar en caso de que alguno de los corruptos hiciera un intento por buscar la paz? así que encontré necesario ir hasta la base y preguntarme ¿qué hubiera hecho en este caso Gaitán?*
 
 [![¿qué hubiera hecho Gaitán?](/wp-content/uploads/por_tema/politica/14225_493456167351899_82490544_n.jpg)](//el3ctron.github.io/que-hubiera-hecho-Gaitan)
 
 <!-- more -->
 ---
 
-Gaitán no saldría con excusas frente a la paz, en su talante siempre se esgrimirían razones poderosamente lógicas, defendiendo al vulnerable. El derrocharía bravura, pero quienes han degustado ese ímpetu en todo su esplendor sabrán que antes que la bravura va la nobleza, es decir, la paz es una premisa espiritual que va mucho mas allá de lo ideológico, inclusive va más allá de lo democrático y de lo filosófico, entonces bajo esa necesidad, el partidismo carecería de sentido, la bravura sólo tiene fuerza cuando en su base está la compasión, y la paz, va por encima de todo.
+Gaitán no saldría con excusas frente a la paz, en su talante siempre se esgrimirían razones poderosamente lógicas en defensa de quien fuese  vulnerable. El derrocharía bravura, pero quienes han degustado ese ímpetu en todo su esplendor sabrán que antes que la bravura va la nobleza, es decir, la paz es una premisa espiritual que va mucho mas allá de lo ideológico, inclusive va más allá de lo democrático y de lo filosófico, entonces bajo esa necesidad, el partidismo carecería de sentido, la bravura sólo tiene fuerza cuando en su base está la compasión, y la paz, como fín último de la compasión va por encima de todo.
 
 Gaitán demuestra en su accionar que hay que apostarle a que con lo que hay, hacer lo mejor posible ¿qué hubiera hecho el caudillo en una coyuntura como la que hoy tenemos en nuestro país? ¿qué camino tomar cuando son dos incompetentes los que se tienen por opción?
 
