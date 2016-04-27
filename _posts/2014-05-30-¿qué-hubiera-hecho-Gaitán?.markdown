@@ -11,7 +11,7 @@ categories: El dilema de la izquierda purista y una que procure el diálogo con 
 - Miscellaneous
 ---
 
-*El dilema de la izquierda purista y una que procure diálogo con las contrapartes, está resuelto. Este texto lo escribí el día en que Santos y Zuluaga quedaron en segunda vuelta y me pregunté: Si una decisión tan importante como la paz queda en manos de un inepto, ¿Cuál debería ser la postura a adoptar? Algunos cercanos cuestionaron mi posición sobre los medios para conseguir la paz, y encontré necesario ir hasta la base y preguntarme ¿qué hubiera hecho en este caso Gaitán?*
+*El dilema de la izquierda purista y una que procure diálogo con las contrapartes, está resuelto. Este texto lo escribí el día en que Santos y Zuluaga quedaron en segunda vuelta y me pregunté: Si una decisión tan importante como la paz queda en manos de un inepto, ¿Cuál debería ser la postura a adoptar? ¿sería correcto ayudar en caso de que alguno de los ineptos hiciera un intento por buscar la paz? así que encontré necesario ir hasta la base y preguntarme ¿qué hubiera hecho en este caso Gaitán?*
 
 [![¿qué hubiera hecho Gaitán?](/wp-content/uploads/por_tema/politica/14225_493456167351899_82490544_n.jpg)](//el3ctron.github.io/que-hubiera-hecho-Gaitan)
 
