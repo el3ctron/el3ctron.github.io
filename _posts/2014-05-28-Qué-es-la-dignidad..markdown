@@ -6,7 +6,7 @@ layout: post
 slug: Qué-es-la-dignidad.
 permalink: Que-es-la-dignidad
 title: ¿Qué es la dignidad?
-description: Qué es la dignidad
+description: La transformación en nuestra Latinoamerica pende del conocer y dominar un concepto fundamental: ¿Qué es la dignidad?
 categories:
 - Miscellaneous
 ---

@@ -6,7 +6,7 @@ layout: post
 slug: ¿Qué-es-un-conservador?
 permalink: Que-es-un-conservador
 title: ¿Qué es un conservador?
-description: En este texto ilustraré los ejes fundamentales sobre los que se edifica el pensamiento conservador.
+description: Estos son los ejes fundamentales sobre los que se edifica el pensamiento conservador.
 categories:
 - Miscellaneous
 ---

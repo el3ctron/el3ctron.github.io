@@ -6,7 +6,7 @@ layout: post
 slug: Sobre-el-aprender
 permalink: Sobre-el-aprender
 title: Sobre el aprender
-description: Sobre el aprender
+description: En una poesía del prodigioso Jorge Luis Borges sobre el aprender.
 categories:
 - Miscellaneous
 ---

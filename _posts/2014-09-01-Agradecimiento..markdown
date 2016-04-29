@@ -6,7 +6,7 @@ layout: post
 slug: Agradecimiento.
 permalink: Agradecimiento.
 title: Agradecimiento.
-description: Un sueño que se cumple y que quiere ir mas allá.
+description: Sobre ir al mas allá.
 categories:
 - Miscellaneous
 ---

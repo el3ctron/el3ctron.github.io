@@ -6,12 +6,12 @@ layout: post
 slug: la-frente-siempre-arriba
 permalink: la-frente-siempre-arriba
 title: la frente siempre arriba
-description: Este texto lo escribí el día de la destitución de Petro, y hoy cobra una connotación y un significado especial.
+description: Cuando lo político y lo espiritual son UNA SOLA COSA coherente.
 categories:
 - Miscellaneous
 ---
 
-*Este texto lo escribí el día de la destitución de Gustavo Petro, y hoy cobra una connotación y un significado especial. Quedan acá consignadas las premisas que se han de llevar cuando se asume la izquierda como un camino de desarrollo material y espiritual, sobre todo en los tiempos en donde la oscuridad pareciera rodearlo todo.*
+*Quedan acá consignadas las premisas que se han de llevar cuando se asume la izquierda como un camino de desarrollo material y espiritual, sobre todo en los tiempos en donde la oscuridad pareciera rodearlo todo. Este texto lo escribí el día de la destitución de Gustavo Petro, y hoy cobra una connotación y un significado especial.*
 
 [![la frente siempre arriba](/wp-content/uploads/por_tema/politica/11189_10151477842546535_1917920896_n.jpg)](//el3ctron.github.io/la-frente-siempre-arriba/index.html)
 
@@ -251,4 +251,3 @@ que la luz y la fortaleza sea toda en nuestra casa.
 ###A LA CARGA!
 
 <br><br><br>
-
