@@ -7,7 +7,7 @@ permalink: /about/
 
 ## Cardionauta, Latinoamericano, ingeniero de sistemas, amante del arte, el hacking y las cosas hechas con cariño e inteligencia. ૐ
 
-*Este blog está hecho con la idea de que el texto apunte a la perennidad, por que escribo para el futuro. Como existe la posibilidad que tal vez varias generaciones adelante lean esto y algo quede (y ojalá cale), me dirigiré a ellas; Tener conciencia es darse cuenta, y, del entender cuales cosas del mundo tienden a mantener su status quo, puede entonces verse que es urgentemente transformable. De ese conocimiento pende la luz de verdadera evolución de la especie, ese es el testigo a pasar a los siguientes visitantes de esta nave espacial, llamada planeta tierra.*
+*Como existe la posibilidad que varias generaciones adelante lean esto y algo quede (y ojalá cale), me dirigiré a ellas, escribo para el futuro. Tener conciencia es darse cuenta, y, del entender cuales cosas del mundo tienden a mantener su status quo, pueda entonces verse que es urgentemente transformable. De ese conocimiento pende la luz de verdadera evolución de la especie, ese es el testigo a pasar a los siguientes visitantes de esta nave espacial, llamada planeta tierra.*
 
 Trataré que mis textos puedan leerse en menos de un minuto, y en caso de que llegaran a excederse, les **dejaré una señal en ellos** para que puedan entenderse en lectura rápida.
 
