@@ -4,7 +4,7 @@ comments: true
 date: 2015-09-27 20:56
 layout: post
 slug: Tratado-sobre-el-perdón.
-permalink: Tratado-sobre-el-perdón.
+permalink: Tratado-sobre-el-perdón
 title: Tratado sobre el perdón.
 description: Heartpocalypse
 categories:
