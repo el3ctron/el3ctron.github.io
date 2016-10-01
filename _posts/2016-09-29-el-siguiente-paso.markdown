@@ -104,10 +104,11 @@ inició un minuto de silencio que duró como décadas,<br>
 era el turno de la diana en la trompeta con esas saudades peligrosas a las que siempre hay que hacerles el quite por que cuestan días ó semanas el librarse de ellas,<br>
 nossa, de qué forma despiadada le atenaza a uno el pecho la tristeza!<br>
 apenas y tuve tiempo de apretar los párpados,<br>
-por que pensé que sería un minuto de perfecto silencio, pero ahí vino esa diana como un sable partiéndolo en dos todo<br>
+por que pensé que sería un minuto de perfecto silencio,<br>
+pero ahí vino casi a traición esa diana como un sable partiéndolo todo en dos<br>
 el pedir no sé a quien no sé a qué<br>
 que fuese la última vez que esa canción solemne sonara,<br>
-que fuese la última vez que en ese lugar esas notas hicieran eco<br>
+que en ese lugar esas notas hicieran eco<br>
 así que respiré profundo y levanté mi bandera de la Unión Patriótica para ponerla lo mas alto posible,<br>
 y con un buen esfuerzo desanudé lo que ya me iba ahogando<br>
 ví al Pepe y a su esposa en la pantalla y el corazón me saltó como el perrito que ve a su dueño llegar<br>
