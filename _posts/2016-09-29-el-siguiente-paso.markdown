@@ -98,13 +98,14 @@ me inventé la superstición de que el fenómeno era causado por algo importante
 en ese preciso instante actual<br>
 juego para hacerle contacto a la naturaleza y recordar el vivir el ahora,<br>
 juego que otras tantas veces se me ha vuelto fuente de perplejidad, pese a saber que es un juego que yo mismo he inventado<br>
-no es el mes octavo, es mi favorito, estamos a finales de septiembre,<br>
+no es el mes octavo, estamos a finales de septiembre, mi favorito,<br>
 y repentinamente las banderas quedaron paralelas al piso, suspendidas por una corriente que atravezaba la plaza<br>
 inició un minuto de silencio que duró como décadas,<br>
 era el turno de la diana en la trompeta con esas saudades peligrosas a las que siempre hay que hacerles el quite por que cuestan días ó semanas el librarse de ellas,<br>
 nossa, de qué forma despiadada le atenaza a uno el pecho la tristeza!<br>
 apenas y tuve tiempo de apretar los párpados,<br>
-y pedir no sé a quien no sé a qué<br>
+por que pensé que sería un minuto de perfecto silencio, pero ahí vino esa diana como un sable partiéndolo en dos todo<br>
+el pedir no sé a quien no sé a qué<br>
 que fuese la última vez que esa canción solemne sonara,<br>
 que fuese la última vez que en ese lugar esas notas hicieran eco<br>
 así que respiré profundo y levanté mi bandera de la Unión Patriótica para ponerla lo mas alto posible,<br>
