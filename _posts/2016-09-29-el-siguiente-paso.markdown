@@ -118,7 +118,7 @@ llega la firma,<br>
 sonreí,<br>
 claro, hay lágrimas que uno no puede contener<br>
 a mi por lo menos se me sacude el alma con facilidad cada vez que alguien me entona al Gabito<br>
-onda resonante enviada desde el mismísimo Macondo, vecina a Heliópolis<br>
+onda resonante enviada desde el mismísimo Macondo, vecina a Heliópolis región de Platonia<br>
 entonces el comandante de las Fuerzas de la Resistencia habló del perdón<br>
 la plaza estalló en festejo,<br>
 y por ese instante valió la pena regresar a Colombia, ir hasta esa fortaleza del alma llamada Bogotá<br>
