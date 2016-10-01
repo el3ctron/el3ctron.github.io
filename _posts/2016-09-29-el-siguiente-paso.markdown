@@ -67,11 +67,11 @@ declaraciones de guerra incompasiva<br>
 nada mas humano que el refinamiento de la comunicación que logramos al inventarnos el lenguaje escrito<br>
 vehículo de la voluntad<br>
 lugar de cruce entre lo invisible y lo tangible,<br>
-coordenada cartesiana que dá el punto y la hora cero<br>
+coordenada cartesiana que dá el punto y la hora cero,<br>
 sitio de partida<br>
 ó como hoy, el inicio de un amanecer para un continente<br>
 para mi país!<br>
-las letras señores, son el mas puro óleo mental<br>
+las letras señoras y señores, son el mas puro óleo mental<br>
 adorada tarde<br>
 iluminado ocaso<br>
 capaces de crear ciudades, países, la Unión de un continente!<br>
@@ -125,7 +125,7 @@ y por ese instante valió la pena regresar a Colombia, ir hasta esa fortaleza de
 yo quise toda mi vida ver esto!!!<br>
 saber que el que está a mi lado es mi hermano aunque no lo conozca,<br>
 hijos del mismo sentimiento,<br>
-ese fraguado en un abrazo espontáneo ó en la genialidad de Francisco de Miranda en los diarios de la Colombeia,<br>
+ese fraguado en un abrazo espontáneo ó en la genialidad de Francisco de Miranda en los diarios de la Colombeia que inspiraran a Bolivar en su gesta<br>
 el tiempo ha llegado!<br>
 AMANECE!<br>
 VIENE LA AURORA!!<br>
