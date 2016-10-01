@@ -57,8 +57,8 @@ materialidad,<br>
 desciende casi siempre en el recipiente de una palabra<br>
 y ahí entonces todo queda bajo esos vectores<br>
 la realidad se ordena entre ese espacio imaginario que limita la secuencia de vocablos,<br>
-dirige para que una gama de transformaciones sean<br>
-nacen proyectos,<br>
+dirige para que una gama de transformaciones sean,<br>
+entonces nacen proyectos,<br>
 se encienden revoluciones,<br>
 envíamos naves hasta los confines del sistema solar,<br>
 se sentencian vidas ó se crean derechos para libertarlas<br>
