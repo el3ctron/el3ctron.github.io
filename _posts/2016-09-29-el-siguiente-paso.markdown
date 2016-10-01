@@ -5,15 +5,13 @@ date: 2016-09-29 15:30
 layout: post
 slug: el-siguiente-paso
 permalink: el-siguiente-paso
-title: el siguiente paso
-description: Septiembre, plaza de Bolivar de Bogotá.
+title: El siguiente paso
+description: Septiembre, el viento en la plaza de Bolivar de Bogotá.
 categories:
 - Miscellaneous
 ---
 
-*Septiembre, plaza de Bolivar de Bogotá. *
-
-[![el siguiente paso](/wp-content/uploads/por_tema/politica/paz.jpg)](/el-siguiente-paso "Septiembre, plaza de Bolivar de Bogotá. ... [CLICK PARA ENTRAR AL ARTÍCULO]")
+[![el siguiente paso](/wp-content/uploads/por_tema/politica/paz.jpg)](/el-siguiente-paso "Septiembre, el viento en la plaza de Bolivar de Bogotá. ... [CLICK PARA ENTRAR AL ARTÍCULO]")
 
 <!-- more -->
 ---
@@ -150,8 +148,7 @@ que el sueño sea entonces completo, PLENO.<br>
 Que estas letras sean REALIDAD!<br>
 POR LA RESTAURACIÓN MORAL DE LA REPÚBLICA!!<br>
 sea la Unión Latinoamericana<br>
-PUEBLO, A LA CARGA!!!<br>
-<br>
+PUEBLO, A LA CARGA!!!
 <br><br>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/GBF1sEqGzGw" frameborder="0" allowfullscreen></iframe><br>
 <br><br><br>
