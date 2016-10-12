@@ -75,7 +75,7 @@ las letras señoras y señores, son el mas puro óleo mental<br>
 adorada tarde<br>
 iluminado ocaso<br>
 capaces de crear ciudades, países, la Unión de un continente!<br>
-que otra cosa que no sea el amor ó la guerra tienen tanto poder para llevar a la realidad casi enseguida a acatar?<br>
+qué otra cosa que no sea el amor ó la guerra tienen tanto poder para llevar a la realidad casi enseguida a acatar?<br>
 esa es la palabra!<br>
 un acuerdo<br>
 todo ese poder en un renglón<br>
@@ -125,7 +125,7 @@ y por ese instante valió la pena regresar a Colombia, ir hasta esa fortaleza de
 yo quise toda mi vida ver esto!!!<br>
 saber que el que está a mi lado es mi hermano aunque no lo conozca,<br>
 hijos del mismo sentimiento,<br>
-ese fraguado en un abrazo espontáneo ó en la genialidad de Francisco de Miranda en los diarios de la Colombeia que inspiraran a Bolivar en su gesta<br>
+ese fraguado en un abrazo espontáneo ó en la genialidad de Francisco de Miranda en los diarios de la Colombeia que inspiraran a Bolivar en su gesta invencible<br>
 el tiempo ha llegado!<br>
 AMANECE!<br>
 VIENE LA AURORA!!<br>
