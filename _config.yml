@@ -1,7 +1,7 @@
 name: el3ctron
 description: "Latinoamericano, cardionauta, ingeniero de sistemas, amante del arte, el hacking y las cosas hechas con cariño e inteligencia."
 markdown: rdiscount
-pygments: true
+highlighter: rouge
 permalink: /:title
 paginate: 10
 excerpt_separator: <!-- more -->
