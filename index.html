@@ -7,7 +7,7 @@ description: Latinoamericano, cardionauta, ingeniero de sistemas, amante del art
 {% for post in paginator.posts %}
 <article class="post">
   <header>
-    <script src="//load.sumome.com/" data-sumo-site-id="4c531fa399fcee2fae14fb54d349ef81d00af59502db64e9e84eb5e56b713fbf" async="async"></script>    <time datetime="{{ post.date | date: "%Y-%m-%d" }}" class="post__time">
+    <time datetime="{{ post.date | date: "%Y-%m-%d" }}" class="post__time">
       <small>{{ post.date | date_to_string }}</small>
     </time>
     <h1><a href="{{ post.url }}">{{ post.title }}</a></h1>
