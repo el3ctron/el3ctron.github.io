@@ -1,5 +1,7 @@
+#Jekyll configuration
 name: el3ctron
-description: "Latinoamericano, cardionauta, ingeniero de sistemas, amante del arte, el hacking y las cosas hechas con cariño e inteligencia."
+description: "Mi blog principal. Latinoamericano, cardionauta, ingeniero de sistemas, amante del arte, el hacking y las cosas hechas con cariño e inteligencia."
+url: "http://el3ctron.github.io"
 markdown: kramdown
 highlighter: rouge
 permalink: /:title
