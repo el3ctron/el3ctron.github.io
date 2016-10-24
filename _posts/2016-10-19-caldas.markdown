@@ -6,7 +6,7 @@ layout: post
 slug: Caldas
 permalink: Caldas
 title: Caldas
-description: Homenaje a Caldas.
+description: Homenaje a Caldas á é íóúñ.
 categories:
 - Miscellaneous
 ---
