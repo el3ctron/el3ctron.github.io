@@ -13,7 +13,7 @@ categories:
 
 *-*
 
-[![Tratado sobre el perdón.](/wp-content/uploads/por_tema/vitacoradevuelo/goldk.jpg)](/Tratado-sobre-el-perdón. "-... [CLICK PARA ENTRAR AL ARTÍCULO]")
+[![Tratado sobre el perdón.](/wp-content/uploads/por_tema/vitacoradevuelo/goldk.jpg)](/Tratado-sobre-el-perd%C3%B3n "-... [CLICK PARA ENTRAR AL ARTÍCULO]")
 
 <!-- more -->
 ---
