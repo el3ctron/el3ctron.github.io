@@ -25,9 +25,10 @@ y, por lo tanto,  corren el riesgo, de NO SER TENIDAS EN CUENTA, ya que,<br>
 mucha atención:<br>
 nadie tiene la obligación de ponerse en la tarea de monitorear sus creativisisímas propuestas y luego analizar la forma en como los demás le replicaron,<br>
 además, muchas veces quien tiene la idea es quien más clara la tiene, por lo tanto, ese creativo suele ser el más indicado para generar una síntesis que, finalmente se puede transformar en un objetivo viable correctamente redactado.<br>
-El salón de chat puede usarse como una introducción para el análisis de un problema, pero NUNCA como el destino final de la documentación de ese problema,<br>
-si su propuesta no fué tenida en cuenta, lo más probable es que haya sido por su misma culpa,<br>
-sumar alguna idea a la herramienta de gestión del proyecto<br>
+
+El salón de chat puede usarse como una introducción para el análisis de un problema, pero NUNCA como el destino final de la **expresión de un objetivo**,<br>
+si su idea no fué tenida en cuenta, lo más probable es que haya sido por un asunto de gestión de quien podría liderar esa propuesta,<br>
+sumar ideas a la herramienta de gestión del proyecto<br>
 permite que pueda llegar a ser tenida en cuenta para el siguiente sprint!<br>
 es sólo dar un click en el lugar correcto y añadir,<br>
 toda propuesta debería estar expresada como un objetivo ALCANZABLE que tiene una estimación de recursos y sobre todo de una argumentación que lo soporte.<br><br>
