@@ -3,8 +3,8 @@ author: el3ctron
 comments: true
 date: 2017-03-21 20:25
 layout: post
-slug: Dirección-de-orquesta-garantizada.
-permalink: Dirección-de-orquesta-garantizada.
+slug: Direccion-de-orquesta-garantizada
+permalink: Direccion-de-orquesta-garantizada
 title: Dirección de orquesta garantizada.
 description: Sobre cómo optimizar el funcionamiento de una organización con muchos líderes, ó cómo ser un excelente director de orquesta en un grupo de voluntarios. (EN UN SOLO RENGLÓN)
 categories:
@@ -13,7 +13,7 @@ categories:
 
 *Sobre cómo optimizar el funcionamiento de una organización con muchos líderes, ó cómo ser un excelente director de orquesta en un grupo de voluntarios. (EN UN SOLO RENGLÓN)*
 
-[![Dirección de orquesta garantizada.](/wp-content/uploads/por_tema/politica/organizacion.jpg)](/Dirección-de-orquesta-garantizada. "Sobre cómo optimizar el funcionamiento de una organización con muchos líderes.... [CLICK PARA ENTRAR AL ARTÍCULO]")
+[![Direccion de orquesta garantizada](/wp-content/uploads/por_tema/politica/organizacion.jpg)](/Dirección-de-orquesta-garantizada. "Sobre cómo optimizar el funcionamiento de una organización con muchos líderes.... [CLICK PARA ENTRAR AL ARTÍCULO]")
 
 
 <!-- more -->
