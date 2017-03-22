@@ -13,7 +13,7 @@ categories:
 
 *Sobre cómo optimizar el funcionamiento de una organización con muchos líderes, ó cómo ser un excelente director de orquesta en un grupo de voluntarios. (EN UN SOLO RENGLÓN)*
 
-[![Direccion de orquesta garantizada](/wp-content/uploads/por_tema/politica/organizacion.jpg)](/Dirección-de-orquesta-garantizada. "Sobre cómo optimizar el funcionamiento de una organización con muchos líderes.... [CLICK PARA ENTRAR AL ARTÍCULO]")
+[![Dirección de orquesta garantizada!](/wp-content/uploads/por_tema/politica/organizacion.jpg)](/Direccion-de-orquesta-garantizada "Sobre cómo optimizar el funcionamiento de una organización con muchos líderes.... [CLICK PARA ENTRAR AL ARTÍCULO]")
 
 
 <!-- more -->
@@ -25,7 +25,8 @@ y, por lo tanto,  corren el riesgo, de NO SER TENIDAS EN CUENTA, ya que,<br>
 mucha atención:<br>
 nadie tiene la obligación de ponerse en la tarea de monitorear sus creativisisímas propuestas y luego analizar la forma en como los demás le replicaron,<br>
 además, muchas veces quien tiene la idea es quien más clara la tiene, por lo tanto, ese creativo suele ser el más indicado para generar una síntesis que, finalmente se puede transformar en un objetivo viable correctamente redactado.<br>
-Si su propuesta no fué tenida en cuenta, lo más probable es que haya sido por su misma culpa,<br>
+El salón de chat puede usarse como una introducción para el análisis de un problema, pero NUNCA como el destino final de la documentación de ese problema,<br>
+si su propuesta no fué tenida en cuenta, lo más probable es que haya sido por su misma culpa,<br>
 sumar alguna idea a la herramienta de gestión del proyecto<br>
 permite que pueda llegar a ser tenida en cuenta para el siguiente sprint!<br>
 es sólo dar un click en el lugar correcto y añadir,<br>
