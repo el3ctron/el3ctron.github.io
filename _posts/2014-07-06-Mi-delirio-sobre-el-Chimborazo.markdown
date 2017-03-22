@@ -58,7 +58,7 @@ El fantasma desapareció.*
 
 *Absorto, yerto, por decirlo así, quedé exánime largo tiempo, tendido sobre aquel inmenso diamante que me servía de lecho. En fin, la tremenda voz de Colombia me grita; resucito, me incorporo, abro con mis propias manos los pesados párpados: vuelvo a ser hombre, y escribo mi delirio.*
 
-##Simón Bolivar.##
+## Simón Bolivar.
 
 
 <br><br><br>
