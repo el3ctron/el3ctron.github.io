@@ -34,9 +34,11 @@ es sólo dar un click en el lugar correcto y añadir,<br>
 toda propuesta debería estar expresada como un objetivo ALCANZABLE que tiene una estimación de recursos y sobre todo de una argumentación que lo soporte.<br><br>
 La experiencia de las más grandes organizaciones ha demostrado que la excelente gestión está asociada a una documentación CLARA y concreta, así que en todo lo posible debería seguirse esa línea.<br>
 **Para tomar el papel de director de orquesta, primero ha de conocer lo que es ser un muy buen compositor y luego un excelente músico**<br>
-Así que resumiendo en un solo renglón:<br>
-<br>
+Si se enuncian ideas ú opiniones sobre algún tema, asegúrese de que queden registradas en el lugar correcto,<br>
+así que resumiendo en un solo renglón, para optimizar el orden:<br><br>
 **EN EL SALÓN DE CHAT SE COMUNICAN HECHOS, NO PROPUESTAS.**<br><br>
 Sea Usted bienvenido a ser un excelente director de orquesta.<br>
 El cambio llega cuando hay un grán lider que lo propulsa.<br>
 La Fuerza de Voluntad es la mayoría de las veces más poderosa que la creatividad, e inclusive que la misma genialidad.<br><br><br>
+
+** [Tómese salón de chat también como determinada lista de correo, ó como espacio verbal dado en una reunión real ó virtual] **
