@@ -2,6 +2,69 @@
 <urlset xmlns:xsi="http://www.w3.org/2001/XMLSchema-instance" xsi:schemaLocation="http://www.sitemaps.org/schemas/sitemap/0.9 http://www.sitemaps.org/schemas/sitemap/0.9/sitemap.xsd" xmlns="http://www.sitemaps.org/schemas/sitemap/0.9">
   
   <url>
+    <loc>http://el3ctron.github.io/Padre-Nuestro</loc>
+    
+    <lastmod>2017-12-20T13:44:00-05:00</lastmod>
+    
+    <changefreq>weekly</changefreq>
+    <priority>1.0</priority>
+  </url>
+  
+  <url>
+    <loc>http://el3ctron.github.io/Direccion-de-orquesta-garantizada</loc>
+    
+    <lastmod>2017-03-21T20:25:00-05:00</lastmod>
+    
+    <changefreq>weekly</changefreq>
+    <priority>1.0</priority>
+  </url>
+  
+  <url>
+    <loc>http://el3ctron.github.io/Caldas</loc>
+    
+    <lastmod>2016-10-19T23:02:00-05:00</lastmod>
+    
+    <changefreq>weekly</changefreq>
+    <priority>1.0</priority>
+  </url>
+  
+  <url>
+    <loc>http://el3ctron.github.io/doblez</loc>
+    
+    <lastmod>2016-10-11T22:56:00-05:00</lastmod>
+    
+    <changefreq>weekly</changefreq>
+    <priority>1.0</priority>
+  </url>
+  
+  <url>
+    <loc>http://el3ctron.github.io/el-siguiente-paso</loc>
+    
+    <lastmod>2016-09-29T15:30:00-05:00</lastmod>
+    
+    <changefreq>weekly</changefreq>
+    <priority>1.0</priority>
+  </url>
+  
+  <url>
+    <loc>http://el3ctron.github.io/Promesa</loc>
+    
+    <lastmod>2016-07-19T02:53:00-05:00</lastmod>
+    
+    <changefreq>weekly</changefreq>
+    <priority>1.0</priority>
+  </url>
+  
+  <url>
+    <loc>http://el3ctron.github.io/Tratado-sobre-el-perdón</loc>
+    
+    <lastmod>2015-09-27T20:56:00-05:00</lastmod>
+    
+    <changefreq>weekly</changefreq>
+    <priority>1.0</priority>
+  </url>
+  
+  <url>
     <loc>http://el3ctron.github.io/Agradecimiento.</loc>
     
     <lastmod>2014-09-01T05:13:00-05:00</lastmod>
@@ -117,6 +180,8 @@
     <changefreq>weekly</changefreq>
     <priority>1.0</priority>
   </url>
+  
+  
   
   
   

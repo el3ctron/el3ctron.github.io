@@ -3,8 +3,8 @@
   <head>
     <meta charset="UTF-8">
     <meta name="viewport" content="width=device-width, minimum-scale=1.0">
-    <title>TL</title>
-    <meta name="description" content="time line">
+    <title>mdt</title>
+    <meta name="description" content="markdown test">
     <link rel="stylesheet" href="/css/style.css">
     <link rel="stylesheet" href="http://fonts.googleapis.com/css?family=Open+Sans:400,300">
     <link rel="stylesheet" href="//netdna.bootstrapcdn.com/font-awesome/4.0.3/css/font-awesome.min.css">
@@ -86,7 +86,7 @@
 
   <div class="master-header">
     <div class="container">
-      <h1 class="master-head--title">TL</h1>
+      <h1 class="master-head--title">mdt</h1>
     </div>
   </div>
 
@@ -94,7 +94,140 @@
     <div class="container">
       <div class="grid">
         <section class="grid__col--60 grid__col--push10" role="main" id="content">
-          <p>&lt;object data=http://el3ctron.github.io/tweets width=”800” height=”1600”&gt; &lt;embed src=http://el3ctron.github.io/tweets/ width=”800” height=”1600”&gt; &lt;/embed&gt; Error: Embedded data could not be displayed. &lt;/object&gt;</p>
+          
+
+<article class="single-post">
+
+  <time datetime="2014-06-03" class="post__time">
+    <small>Liquid error: undefined method `strftime' for "2014-06-03 02:51":String</small>
+  </time>
+
+  <p><em>markdown test</em></p>
+
+<p><a href="./mdt" title="markdown test...[click para entrar!]"><img src="/wp-content/uploads/por_tema/arte/woredpress-to-jekyll.png" alt="mdt" /></a></p>
+
+<!-- more -->
+<hr />
+
+<table>
+  <thead>
+    <tr>
+      <th>—————Tables—————</th>
+      <th style="text-align: center">—————Are—————</th>
+      <th style="text-align: right">—————Cool—————</th>
+      <th style="text-align: center">45</th>
+    </tr>
+  </thead>
+  <tbody>
+    <tr>
+      <td>col 3 is</td>
+      <td style="text-align: center">right-aligned</td>
+      <td style="text-align: right">$1600</td>
+      <td style="text-align: center">-</td>
+    </tr>
+    <tr>
+      <td>col 2 is</td>
+      <td style="text-align: center">centered</td>
+      <td style="text-align: right">$12</td>
+      <td style="text-align: center">-</td>
+    </tr>
+    <tr>
+      <td>zebra stripes</td>
+      <td style="text-align: center">are neat</td>
+      <td style="text-align: right">$1</td>
+      <td style="text-align: center">-</td>
+    </tr>
+  </tbody>
+</table>
+
+<pre><code>code block
+</code></pre>
+
+<table>
+  <thead>
+    <tr>
+      <th>–Markdown–</th>
+      <th style="text-align: center">–Less–</th>
+      <th>–Pretty–</th>
+    </tr>
+  </thead>
+  <tbody>
+    <tr>
+      <td><em>Still</em></td>
+      <td style="text-align: center"><code>renders</code></td>
+      <td><strong>nicely</strong></td>
+    </tr>
+    <tr>
+      <td>1</td>
+      <td style="text-align: center">2</td>
+      <td>3</td>
+    </tr>
+  </tbody>
+</table>
+
+<pre><code>:otro:
+</code></pre>
+
+<p><a href="https://www.google.com">I’m an inline-style link</a></p>
+
+<p><a href="https://www.google.com" title="Google's Homepage">I’m an inline-style link with title</a></p>
+
+<p>[I’m a reference-style link][Arbitrary case-insensitive reference text]</p>
+
+<p><a href="../blob/master/LICENSE">I’m a relative reference to a repository file</a></p>
+
+<h1 id="this-is-an-h1">This is an H1</h1>
+
+<h2 id="this-is-an-h2">This is an H2</h2>
+
+<h6 id="this-is-an-h6">This is an H6</h6>
+
+<p>This is a <code>inline code block</code></p>
+
+<p><code>js
+var a = {};
+</code></p>
+
+<p><code>python
+print el3ctron
+</code></p>
+
+<p><br /><br /><br /></p>
+
+
+  <p>
+    Share this on:
+    <a href="//twitter.com/intent/tweet?text=mdt&amp;url=http://el3ctron.github.io//ejemplos/mdt&amp;via=el3ctron" target="_blank">Twitter</a> &bull;
+    <a href="//plusone.google.com/_/+1/confirm?hl=en&amp;url=http://el3ctron.github.io//ejemplos/mdt" target="_blank">Google+</a> &bull;
+    <a href="//facebook.com/sharer/sharer.php?u=http://el3ctron.github.io//ejemplos/mdt" target="_blank">Facebook</a>
+  </p>
+
+  <hr class="bold">
+  <div class="grid">
+    <div class="grid__col--45 grid__col--push10">
+    
+    </div>
+    <div class="grid__col--45">
+    
+    </div>
+  </div>
+  <hr class="bold">
+
+  
+    <div id="disqus_thread"></div>
+    <script>
+      var disqus_shortname = 'el3ctron',
+          disqus_title = "mdt",
+          disqus_url = "http://el3ctron.github.io//ejemplos/mdt";
+      (function() {
+          var dsq = document.createElement('script'); dsq.async = true;
+          dsq.src = '//' + disqus_shortname + '.disqus.com/embed.js';
+          (document.getElementsByTagName('head')[0] || document.getElementsByTagName('body')[0]).appendChild(dsq);
+      })();
+    </script>
+  
+
+</article>
 
         </section>
         <aside class="grid__col--20" role="complementary">
