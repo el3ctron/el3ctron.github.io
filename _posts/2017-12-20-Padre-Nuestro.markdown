@@ -32,7 +32,7 @@ a los que nos ofenden;<br>
 que no haya impunidad con el acaparador,<br>
 como también con el violento, el cobarde y la confusión<br>
 <br>
-llévanos a la Realización,<br>
+llévanos a la organización social y a la Realización personal,<br>
 y líbranos del mal. Amén.<br>
 
 <br><br><br>
