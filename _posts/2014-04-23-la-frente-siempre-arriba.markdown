@@ -146,7 +146,7 @@ conspiran
 
 y pese a tantas cosas adversas estamos aquí
 
-##FIRMES!
+# FIRMES!
 
 lo que tiene capacidad para mantenerse es Fuerte
 
@@ -187,11 +187,11 @@ es primero la de la fuerza
 
 es la de irradiarle a las personas valentía, vida y alegría,
 
-la hacerle entender a las personas su inconmesurable valor!
+la de hacerle entender a las personas su inconmesurable valor!
 
-las razones poderosas que explican el porqué no hay que temer,
+las razones poderosas que explican el porqué no hay que temer!
 
-colombianos, se puede apostar a un sueño y cumplirlo
+colombianos, ciudadanos de la futura Unión Latinoamericana, se puede apostar a un sueño y cumplirlo
 
 somos hijos de los bravos que enfrentaron a una superpotencia doscientos años atrás
 
@@ -220,7 +220,7 @@ pero no lo suficientemente dura para arrasarnos.
 
 Dolió Gaitán, dolió Jaime Pardo Leal, dolió Pizarro
 
-duelen todos esos indígenas, que mueren defendiendo su tierra y sus familias y su cultura a punto de ser extinguida,
+duelen todos esos indígenas, que mueren defendiendo su tierra y sus familias y su culturas a punto de ser extinguidas,
 
 pero quienes la luchan y se mantienen
 
@@ -248,6 +248,6 @@ que se enciendan nuestros corazones de vigor y claridad!
 
 que la luz y la fortaleza sea toda en nuestra casa.
 
-###A LA CARGA!
+### A LA CARGA!
 
 <br><br><br>
