@@ -17,7 +17,7 @@ categories:
 
 <!-- more -->
 ---
-De la dignidad por un lado está lo que tiene que ver con los derechos mínimos que un ser humano por el simple hecho de existir, y de nacer y de vivir tiene; Por ejemplo, la vida de un ser vivo se dignifica cuando en su casa propia se pasa de tomar agua de un caño sucio a tener una tubería con agua potable. ` Entonces hay unos mínimos materiales que facilitan la vida y le dan dignidad a una persona.`
+De la dignidad por un lado está lo que tiene que ver con los derechos mínimos que un ser humano por el simple hecho de existir, y de nacer y de vivir tiene; Por ejemplo, la vida de un ser vivo se dignifica cuando en su casa propia se pasa de tomar agua de un caño sucio a tener una tubería con agua potable. `Entonces hay unos mínimos materiales que facilitan la vida y que le dan dignidad a una persona.`
 
 Por otro lado de la dignidad, está lo respectivo a la moral, es decir, no a esa moral ficticia e idiota de los conservadores en donde "hay que" cumplir unas normas ridículas para que las monjas aplaudan, sino a esa clase de moral forjada por ejemplo por un campeón tras meses de entrenamiento, esa moral heroica que lo faculta a empujar a su propio equipo para voltear un marcador en contra en el último minuto (independientemente de si lo logre o no), ó, en otro ejemplo, como el guerrero que con inferioridad de armas ó de unidades militares logra enfrentarse a un enemigo en batalla para vencerle (independientemente de si lo logre o no), destacando acá la bravura, la concentración, el conocimiento de una técnica, el profesionalismo, la fuerza de voluntad indomable, la indoblegabilidad ante las circunstancias, el dominio de las condiciones del campo de batalla, el planteamiento y desarrollo estratégico e inteligente sobre la realidad y en caso último, la capacidad para el sacrificio dirigido a obtener la victoria, aunque sólo fuese una victoria moral, entonces tal clase de moral casi suprahumana y siempre victoriosa le hace "DIGNO A" un título, un reconocimiento; `la dignidad tiene que ver con el mérito obtenido POR VIRTUD, entonces, somos dignos de lo que conquistamos.`
 
@@ -33,8 +33,8 @@ sabemos de sobra que los políticos no harán nada,
 
 el cambio ÚNICAMENTE está en nosotros
 
-superar el subdesarrollo consiste en procurar la dignidad en nuestra cotidiana realidad, es decir, en todas y cada una de NUESTRAS DECISIONES
+superar el subdesarrollo consiste en procurar la dignidad en nuestra cotidiana realidad, es decir, en todas y cada una de NUESTRAS DECISIONES.
 
-el cambio inicialmente está en nosotros
+El cambio que tanto anhela la preciosa Latinoamérica inicialmente está en nosotros.
 
 <br><br><br>
