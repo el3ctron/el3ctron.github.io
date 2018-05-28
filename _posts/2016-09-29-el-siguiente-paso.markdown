@@ -11,21 +11,26 @@ categories:
 - Miscellaneous
 ---
 
+*La descripción de lo que fué la plaza de Bolivar de Bogotá esa bonita tarde de septiembre en el que se firmara la paz.*
+
 [![el siguiente paso](/wp-content/uploads/por_tema/politica/paz.jpg)](/el-siguiente-paso "Septiembre, el viento en la plaza de Bolivar de Bogotá. ... [CLICK PARA ENTRAR AL ARTÍCULO]")
 
 <!-- more -->
 ---
+<br><br>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBF1sEqGzGw" frameborder="0" allowfullscreen></iframe><br>
 Cada uno de los coros de alabanza de las mujeres de Bojayá fueron vitoreados en la plaza como si Gaitán los estuviese pronunciando<br>
 esta vaina tiene que ser un sueño,<br>
 será que me morí y ni me dí cuenta?<br>
 alcancé a pensar que una cosa así la contemplaría en otro mundo<br>
 en ese idílico lugar en donde se cumplen todas las esperanzas y que algunos llaman cielo<br>
 pero de tanta fortuna, que no tuve que esperar tanto, ahí estaba justo frente a mis ojos ocurriendo<br>
-jóvenes, trabajadores, artistas, víctimas, soldados<br>
+jóvenes, trabajadores, víctimas, artistas, soldados<br>
 sonrisas, música, júbilo, alegría<br>
-un carnaval con batucada incluida entrando a ese mismo lugar<br>
-al que entrara Bolivar luego de su victoria en Boyacá<br>
-para recibir unos laureles en la cabeza que el cariño de la gente le había trenzado<br>
+un carnaval con batucada incluida entrando a ese mismo lugar al que<br>
+entrara Bolivar doscientos años atrás luego de su victoria en Boyacá para<br>
+recibir unos laureles en sus cienes que el cariño de la gente le había trenzado<br>
+hoy recibimos algo del mismo tamaño<br>
 abrazos,<br>
 las banderas blancas y tricolores colmaban el lugar,<br>
 un atardecer naranja<br>
@@ -33,13 +38,13 @@ si esto es uno de esos oníricos mecanismos de Morfeo, por favor no me despierte
 <br>
 <br>
 Dicen que las memorias de la infancia, son meras reinvenciones de la imaginación adulta<br>
-pero no lo creo, en mi memoria, claramente recuerdo<br>
+pero no lo creo, en mi memoria, clara y vívidamente recuerdo<br>
 que se me ensartaba como una flecha cubierta en fuego el imaginar que otro niño tuviera que padecer una guerra<br>
-perder sus padres, su escuela, sus amigos, su mascota, sus juguetes<br>
+imagínese ese asunto de perder sus padres, su escuela, sus amigos, su mascota, sus juguetes<br>
 el no tener las manos lo suficientemente grandes y fuertes para poderse defender y defender a todo lo que amara<br>
 el no tener el conocimiento para poder reparar lo dañado<br>
 así no se puede,<br>
-atentar contra un niño ó contra algo cercano a un niño... cuánta maldad! ¿a quién le cabe eso?<br>
+atentar contra un niño ó contra algo cercano a un niño...? cuánta maldad! ¿a quién le cabe eso?<br>
 vea, si los adultos quieren matarse, que lo hagan, pero que no toquen ni a los niños, ni a los animales, ni a las plantas,<br>
 ¿cómo un ser humano puede pensar en destrozar una cosa tan pura y tan linda como un juguete?<br>
 la inocencia es la expresión estética más elevada de la naturaleza<br>
@@ -62,14 +67,15 @@ entonces nacen proyectos,<br>
 se encienden revoluciones,<br>
 envíamos naves hasta los confines del sistema solar,<br>
 se sentencian vidas ó se crean derechos para libertarlas<br>
-crea pactos de amor queriendo ser eterno<br>
+la palabra crea pactos de amor queriendo ser eternos<br>
 declaraciones de guerra incompasiva<br>
 nada mas humano que el refinamiento de la comunicación que logramos al inventarnos el lenguaje escrito<br>
 vehículo de la voluntad<br>
 lugar de cruce entre lo invisible y lo tangible,<br>
 coordenada cartesiana que dá el punto y la hora cero,<br>
 sitio de partida<br>
-ó como hoy, el inicio de un amanecer para un continente<br>
+ó como hoy,<br>
+el inicio de un amanecer para un continente<br>
 para mi país!<br>
 las letras señoras y señores, son el mas puro óleo mental<br>
 adorada tarde<br>
@@ -87,17 +93,22 @@ tal vez ahora pueda pensar en quedarme y poner a un lado la idea de irme<br>
 mi sueño es este!<br>
 llega el tiempo de replanteamientos radicales, girar el rumbo, un destino<br>
 momentos en donde renace el amor por la tierra en una forma en la que casi había dejado de percibir<br>
-por que hay cosas que uno ama, aunque se le vayan en contra<br>
-por razones que van mas allá de lo evidente.<br>
+por que hay cosas que uno ama,<br>
+por razones que van mas allá de lo evidente<br>
+(aunque se le vayan a uno en contra).<br>
 <br>
 <br>
 Es raro que en Bogotá pasen vientos fuertes,<br>
 a menos, claro, que sea agosto,<br>
-como esporádico resulta el ventarrón<br>
-me inventé la superstición de que el fenómeno era causado por algo importante ocurriendo en tiempo presente puro y continuo<br>
-en ese preciso instante actual<br>
+y como tam esporádico resulta el ventarrón de los otros once meses<br>
+le atribuí la superstición de que el fenómeno fuese causado como un tipo de señal<br>
+por algo importante ocurriendo en tiempo presente puro y continuo<br>
+al que debería dársele atención ya que la mente anda por ahí saltando de entre ideas, deseos, formas, sensaciones y hasta traumas<br>
+entonces el juego te trae al preciso instante actual<br>
+como una fotografía mental que casi desprevenidamente yo mismo me tomo<br>
 juego para hacerle contacto a la naturaleza y recordar el vivir el ahora,<br>
-juego que otras tantas veces se me ha vuelto fuente de perplejidad, pese a saber que es un juego que yo mismo he inventado<br>
+juego que otras tantas veces se me ha vuelto fuente de perplejidad,<br>
+pese a saber que es un juego que yo mismo he inventado<br>
 no es el mes octavo, estamos a finales de septiembre, mi favorito,<br>
 y repentinamente las banderas quedaron paralelas al piso, suspendidas por una corriente que atravezaba la plaza<br>
 inició un minuto de silencio que duró como décadas,<br>
@@ -119,7 +130,7 @@ sonreí,<br>
 claro, hay lágrimas que uno no puede contener<br>
 a mi por lo menos se me sacude el alma con facilidad cada vez que alguien me entona al Gabito<br>
 onda resonante enviada desde el mismísimo Macondo, vecina a Heliópolis región de Platonia<br>
-entonces el comandante de las Fuerzas de la Resistencia habló del perdón<br>
+entonces el comandante de las Fuerzas de la Resistencia pasó al frente y habló del perdón<br>
 la plaza estalló en festejo,<br>
 y por ese instante valió la pena regresar a Colombia, ir hasta esa fortaleza del alma llamada Bogotá<br>
 yo quise toda mi vida ver esto!!!<br>
@@ -151,6 +162,4 @@ Que estas letras sean REALIDAD!<br>
 POR LA RESTAURACIÓN MORAL DE LA REPÚBLICA!!<br>
 sea la Unión Latinoamericana<br>
 PUEBLO, A LA CARGA!!!
-<br><br>
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBF1sEqGzGw" frameborder="0" allowfullscreen></iframe><br>
 <br><br><br>
