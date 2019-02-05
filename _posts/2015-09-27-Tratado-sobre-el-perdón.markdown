@@ -29,11 +29,11 @@ en las plantas que lograron vencer las agrestes condiciones se forjaron sabios y
 los más heroicos, floridos y otros, que hasta procrearon fruto<br>
 ahí<br>
 la belleza del paisaje<br>
-poderosas olas en lontananza que se crispan y caen como en cámara lenta<br>
+poderosas olas que en lontananza se crispan y caen como en cámara lenta<br>
 los plenos 360 grados del horizonte en su plena y perfecta circunferencia,<br>
 panóptico de Utopía..<br>
-atardece<br>
-contemplo<br>
+atardece,<br>
+contemplo.<br>
 -- "con unos días de anterioridad, (le comenté a mi esperanza)
 a sesión extraordinaria fui convocado,<br>
 en los campos de las Acacías Argentinas;<br>
@@ -48,7 +48,7 @@ pero que yo entendía como mi aliada y mi inspiración<br>
 intenté desoír por que esas verdades presentadas tan crudas duelen<br>
 y me desafió:<br>
 -- "si lo que lo que yace en ese pecho es una fuerza INVENCIBLE"<br>
--- "la casta misma de la resiliencia!", respondí al Jefe Máximo mientras se acercaba para ofrecerme la mejor de sus armas, me replicó:<br>
+-- "la casta misma de la resiliencia!!", respondí al Jefe Máximo mientras se acercaba para ofrecerme la mejor de sus armas, me replicó:<br>
 -- "esas no son solo unas frases acuñadas sobre algún texto pseudopoético,<br>
 entenderá ahora (mientras ponía el sable en mis manos)<br>
 que<br>
